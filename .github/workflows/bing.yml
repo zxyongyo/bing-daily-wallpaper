@@ -1,0 +1,36 @@
+name: Get bing pictures
+
+on:
+  schedule:
+    - cron: '0 * 9 * * ?' # 每天上午5点 '0 0 5 * * ?'
+  workflow_dispatch: # 允许手动触发
+
+jobs:
+  play:
+    runs-on: ubuntu-latest
+    container:
+      image: docker://ubuntu-latest
+      options: --env TZ=Asia/Shanghai # 设置容器时区为北京时间
+    steps:
+      - uses: actions/checkout@v3
+        with:
+          lfs: true
+
+      - name: Install and Build 🔧
+        run: |
+          yarn
+          yarn build
+
+      - name: Commit files 🐱‍🏍
+        run: |
+          git config --local user.email "1203123788@qq.com"
+          git config --local user.name "zxyong"
+          git pull
+          git add ./
+          git commit -m "update wallpaper"
+
+      - name: Push changes 🚀
+        uses: ad-m/github-push-action@master
+        with:
+          github_token: ${{ secrets.ACCESS_TOKEN }}
+          branch: master
