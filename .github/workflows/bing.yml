@@ -28,9 +28,4 @@ jobs:
           git pull
           git add ./
           git commit -m "update wallpaper"
-
-      - name: Push changes 🚀
-        uses: ad-m/github-push-action@master
-        with:
-          github_token: ${{ secrets.ACCESS_TOKEN }}
-          branch: master
+          git push
