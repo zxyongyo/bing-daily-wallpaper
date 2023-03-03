@@ -8,9 +8,6 @@ on:
 jobs:
   play:
     runs-on: ubuntu-latest
-    container:
-      image: docker://ubuntu:20.04
-      options: --env TZ=Asia/Shanghai # 设置容器时区为北京时间
     steps:
       - uses: actions/checkout@v2
       - uses: actions/setup-node@v2
