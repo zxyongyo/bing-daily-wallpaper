@@ -34,6 +34,7 @@ main()
 
 
 async function main() {
+  console.log(new Date())
   try {
     const pictures = await getBingPictures()
     for (const picture of pictures) {
