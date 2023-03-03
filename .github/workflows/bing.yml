@@ -2,15 +2,12 @@ name: Get bing pictures
 
 on:
   schedule:
-    - cron: '0 5 * * ?' # 每天上午5点 
+    - cron: '0 13 * * ?' # 北京时间每天上午5点
   workflow_dispatch: # 允许手动触发
 
 jobs:
   play:
     runs-on: ubuntu-latest
-    container:
-      image: docker://ubuntu-latest
-      options: --env TZ=Asia/Shanghai # 设置容器时区为北京时间
     steps:
       - uses: actions/checkout@v3
         with:
