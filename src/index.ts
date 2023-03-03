@@ -21,30 +21,30 @@ const config = {
   }
 }
 
-// main()
+main()
 
-;(async function () {
-  config.defaultQueries.idx = 7
-  config.defaultQueries.n = 8
-  await main()
-  config.defaultQueries.idx = 0
-  config.defaultQueries.n = 7
-  await main()
-})()
+// ;(async function () {
+//   config.defaultQueries.idx = 7
+//   config.defaultQueries.n = 8
+//   await main()
+//   config.defaultQueries.idx = 0
+//   config.defaultQueries.n = 7
+//   await main()
+// })()
 
 
 async function main() {
   try {
     const pictures = await getBingPictures()
     for (const picture of pictures) {
-      let { startdate, url, copyright, title, hsh } = picture
+      let { enddate, url, copyright, title, hsh } = picture
 
       const date =
-        startdate.slice(0, 4) +
+        enddate.slice(0, 4) +
         '-' +
-        startdate.slice(4, 6) +
+        enddate.slice(4, 6) +
         '-' +
-        startdate.slice(-2)
+        enddate.slice(-2)
       const url_1080 = config.bingUrl + url
       url = url.split('1920x1080').join('UHD')
       const url_4k = config.bingUrl + url
