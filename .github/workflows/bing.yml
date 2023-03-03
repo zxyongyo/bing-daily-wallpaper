@@ -14,10 +14,6 @@ jobs:
         with:
           node-version: 16
           cache: 'yarn'
-      - name: Set timezone 🕰️
-        uses: szenius/set-timezone@v1.0
-        with:
-          timezoneLinux: 'Asia/Shanghai'
 
       - name: Install and Build 🔧
         run: |
