@@ -22,6 +22,7 @@ jobs:
 
       - name: Commit files 🐱‍🏍
         run: |
+          git config --local --unset-all "http.https://github.com/.extraheader"
           git config --local user.email "1203123788@qq.com"
           git config --local user.name "zxyong"
           git pull
