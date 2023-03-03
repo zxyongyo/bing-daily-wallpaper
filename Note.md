@@ -23,5 +23,5 @@
 - [x] 将数据做一个 map.json，方便使用。
 - [ ] 写入对应图片的 story 链接。
 - [x] 每日抓取后将图片和信息写入 README.md 方便预览。
-- [ ] GitHub Action 定时任务，每日自动抓取，写入。
+- [x] GitHub Action 定时任务，每日自动抓取，写入。
 - [ ] 使用 vitepress 做一个网站方便预览。

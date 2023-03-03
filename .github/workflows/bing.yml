@@ -2,7 +2,7 @@ name: Get bing pictures
 
 on:
   schedule:
-    - cron: '0 5 * * ?' # 北京时间每天上午5点
+    - cron: '0 13 * * ?' # 北京时间每天上午5点
   workflow_dispatch: # 允许手动触发
 
 jobs:
@@ -21,7 +21,7 @@ jobs:
           yarn build
 
       - name: Commit files 🐱‍🏍
-        run: |
+        run: | # @see https://github.com/ad-m/github-push-action/issues/52
           git config --local --unset-all "http.https://github.com/.extraheader"
           git config --local user.email "1203123788@qq.com"
           git config --local user.name "zxyong"
