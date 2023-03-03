@@ -2,7 +2,7 @@ name: Get bing pictures
 
 on:
   schedule:
-    - cron: '0/6 9 * * *' # 每天上午5点 '0 0 5 * * ?'
+    - cron: '0 5 * * ?' # 每天上午5点 
   workflow_dispatch: # 允许手动触发
 
 jobs:
