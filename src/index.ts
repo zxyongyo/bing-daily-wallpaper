@@ -21,16 +21,16 @@ const config = {
   }
 }
 
-main()
+// main()
 
-// ;(async function () {
-//   config.defaultQueries.idx = 7
-//   config.defaultQueries.n = 8
-//   await main()
-//   config.defaultQueries.idx = 0
-//   config.defaultQueries.n = 7
-//   await main()
-// })()
+;(async function () {
+  config.defaultQueries.idx = 7
+  config.defaultQueries.n = 8
+  await main()
+  config.defaultQueries.idx = 0
+  config.defaultQueries.n = 7
+  await main()
+})()
 
 
 async function main() {
