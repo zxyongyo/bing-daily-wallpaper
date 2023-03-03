@@ -2,7 +2,7 @@ name: Get bing pictures
 
 on:
   schedule:
-    - cron: '0 13 * * ?' # 北京时间每天上午5点
+    - cron: '0 21 * * *' # UTC时间21点（北京时间早上5点）
   workflow_dispatch: # 允许手动触发
 
 jobs:
@@ -14,6 +14,10 @@ jobs:
         with:
           node-version: 16
           cache: 'yarn'
+      - name: Set timezone 🕰️
+        uses: szenius/set-timezone@v1.0
+        with:
+          timezoneLinux: 'Asia/Shanghai'
 
       - name: Install and Build 🔧
         run: |
