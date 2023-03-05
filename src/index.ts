@@ -6,7 +6,6 @@ import {
   readFileSync,
   mkdirSync
 } from 'fs'
-import chalk from '../node_modules/chalk/source/index.js'
 
 const config = {
   savePath: './static/',
@@ -34,7 +33,6 @@ main()
 
 
 async function main() {
-  console.log(new Date())
   try {
     const pictures = await getBingPictures()
     for (const picture of pictures) {
@@ -69,7 +67,7 @@ async function main() {
       })
     }
   } catch (e) {
-    errLog('main', e)
+    console.log(e)
     throw e
   }
 }
@@ -80,7 +78,7 @@ async function getBingPictures() {
     const URL =
       config.pictureURL + `?idx=${idx}&n=${n}&format=${format}&mkt=zh-CN`
   
-    console.log(chalk.cyan(`Request url: ${URL}`))
+    console.log(`Request url: ${URL}`)
     const response = await fetch(URL)
     const data = await response.json()
     // console.log(data)
@@ -88,7 +86,7 @@ async function getBingPictures() {
     // console.log(picture)
     return pictures
   } catch (e) {
-    errLog('getBingPictures', e)
+    console.log(e)
     throw e
   }
 }
@@ -105,7 +103,7 @@ async function download(url: string, name: string) {
 
   const path = config.savePath + name
   if (existsSync(path)) {
-    console.log(chalk.yellow('Duplicate image, not downloaded! → ' + path))
+    console.log(`Warning: Duplicate image, not downloaded! → ${path}`)
     return
   }
   const response = await fetch(url)
@@ -114,10 +112,10 @@ async function download(url: string, name: string) {
 
   writeFile(path, buffer, err => {
     if (err) {
-      errLog('download', err)
+      console.log(err)
       throw err
     }
-    console.log(chalk.greenBright(`Download completed! Saved at ${path}`))
+    console.log(`Done: Download completed! Saved at ${path}`)
   })
 }
 
@@ -144,7 +142,7 @@ function writeMap(info: PictureInfo) {
     const isRepeat = JSONData.some(v => v.hsh === info.hsh)
     if (isRepeat) {
       // 防止写入重复的
-      console.log(chalk.yellow('Duplicate data, not written! ↓'))
+      console.log('Warning: Duplicate data, not written! ↓')
       console.log(info)
       return
     }
@@ -154,12 +152,12 @@ function writeMap(info: PictureInfo) {
     )
 
     writeFileSync(config.mapPath, JSON.stringify(JSONData))
-    console.log(chalk.greenBright('Write map.json completed! ↓'))
+    console.log('Done: Write map.json completed! ↓')
     console.log(info)
 
     writeReadme(JSONData)
   } catch (e) {
-    errLog('writeMap', e)
+    console.log(e)
     throw e
   }
 }
@@ -168,7 +166,7 @@ async function writeReadme(data: PictureInfo[]) {
   try {
     const today = data.shift()
     if (!today) {
-      console.log(chalk.bgRed('WriteReadme: invalid data! ↓'))
+      console.log('Error: WriteReadme: invalid data! ↓')
       console.log(data)
       return
     }
@@ -192,14 +190,9 @@ async function writeReadme(data: PictureInfo[]) {
     })
 
     writeFileSync('./README.md', dataList.join(''))
-    console.log(chalk.greenBright('Write README.md completed!'))
+    console.log('Done: Write README.md completed!')
   } catch (e) {
-    errLog('writeReadme', e)
+    console.log(e)
     throw e
   }
-}
-
-function errLog(fnName: string, e: unknown) {
-  console.log(chalk.bgRed(`Error in ${fnName}! ↓`))
-  console.log(e)
 }
