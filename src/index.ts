@@ -1,11 +1,16 @@
 import fetch from 'node-fetch'
-import { existsSync, writeFileSync, readFileSync, mkdirSync } from 'fs'
+// TODO fs/promises
+import {
+  existsSync,
+  writeFileSync,
+  writeFile,
+  readFileSync,
+  mkdirSync,
+  rmSync
+} from 'fs'
 import { dirname } from 'path'
 
 const option = {
-  mapPath: './map.json',
-  getArchiveMapPath: (d: string) => `./archives/${d}/${d}.json`,
-  getArchivePreviewPath: (d: string) => `./archives/${d}/${d}.md`,
   bingUrl: 'https://cn.bing.com',
   // http://www.bing.com/HPImageArchive.aspx?idx=0&n=1&format=js&mkt=zh-CN&uhd=1&uhdwidth=1920&uhdheight=1080
   pictureURL: 'http://www.bing.com/HPImageArchive.aspx',
@@ -18,15 +23,31 @@ const option = {
 }
 
 main()
+// rewrite()
 
-// ;(async function () {
-//   option.queries.idx = 7
-//   option.queries.n = 8
-//   await main()
-//   option.queries.idx = 0
-//   option.queries.n = 7
-//   await main()
-// })()
+/** 根据已有的 map.json，重写所有文件 */
+function rewrite() {
+  try {
+    const buffer = readFileSync('./map.json')
+    const stringData = buffer.toString()
+    const JSONData = JSON.parse(stringData) as JSONMap
+    const images = JSONData.images
+
+    rmSync('./map.json', { recursive: true, force: true })
+    rmSync('./README.md', { recursive: true, force: true })
+    rmSync('./archives', { recursive: true, force: true })
+    rmSync('./docs/archives', { recursive: true, force: true })
+    rmSync('./docs/index.md', { recursive: true, force: true })
+    rmSync('./docs/.vitepress/sidebar.ts', { recursive: true, force: true })
+
+    images.forEach(item => {
+      writeMap(item)
+    })
+  } catch (e) {
+    console.log(e)
+    throw e
+  }
+}
 
 async function main() {
   try {
@@ -83,11 +104,11 @@ async function getBingPictures() {
 
 function writeMap(info: PictureInfo) {
   try {
-    if (!existsSync(option.mapPath)) {
-      writeFileSync(option.mapPath, '{"images": [],"archives": []}')
+    if (!existsSync('./map.json')) {
+      writeFileSync('./map.json', '{"images": [],"archives": []}')
     }
 
-    const buffer = readFileSync(option.mapPath)
+    const buffer = readFileSync('./map.json')
     const stringData = buffer.toString()
     const JSONData = JSON.parse(stringData) as JSONMap
     const { images, archives } = JSONData
@@ -104,9 +125,10 @@ function writeMap(info: PictureInfo) {
     )
 
     const dateMonth = info.date.split('-').slice(0, 2).join('-')
-    const mapPath = option.getArchiveMapPath(dateMonth)
-    const previewPath = option.getArchivePreviewPath(dateMonth)
+    const mapPath = `./archives/${dateMonth}/${dateMonth}.json`
+    const previewPath = `./archives/${dateMonth}/${dateMonth}.md`
     writeArchive(dateMonth, info, mapPath, previewPath)
+
     const isExistsArchive = archives.some(item => item.date.includes(dateMonth))
     if (!isExistsArchive) {
       archives.unshift({
@@ -119,11 +141,12 @@ function writeMap(info: PictureInfo) {
       )
     }
 
-    writeFileSync(option.mapPath, JSON.stringify(JSONData))
+    writeFileSync('./map.json', JSON.stringify(JSONData))
     console.log('Done: Write map.json completed! ↓')
     console.log(info)
 
     writeReadme(images, archives)
+    writeDocs(images, archives)
   } catch (e) {
     console.log(e)
     throw e
@@ -169,7 +192,12 @@ async function writeReadme(images: PictureInfo[], archives: ArchivesInfo[]) {
   }
 }
 
-function writeArchive(dateMonth: string, info: PictureInfo, mapPath: string, previewPath: string) {
+function writeArchive(
+  dateMonth: string,
+  info: PictureInfo,
+  mapPath: string,
+  previewPath: string
+) {
   try {
     if (!existsSync(mapPath)) {
       mkdirSync(dirname(mapPath), { recursive: true })
@@ -185,8 +213,7 @@ function writeArchive(dateMonth: string, info: PictureInfo, mapPath: string, pre
     )
 
     writeFileSync(mapPath, JSON.stringify(images))
-    console.log(`Done: Write '${mapPath}' completed! ↓`)
-    console.log(info)
+    console.log(`Done: Write '${mapPath}' completed!`)
 
     const writeDataList = [
       `# ${dateMonth} Bing Daily Wallpaper\n\n`,
@@ -210,4 +237,83 @@ function writeArchive(dateMonth: string, info: PictureInfo, mapPath: string, pre
     console.log(e)
     throw e
   }
+}
+
+function writeDocs(images: PictureInfo[], archives: ArchivesInfo[]) {
+  // 最新的31条
+  const imageList = images.slice(0, 31)
+  const writeDataList: string[] = []
+  imageList.forEach(item => {
+    writeDataList.push(`## ${item.date} ${item.title}\n\n`)
+    writeDataList.push(item.copyright + '\n\n')
+    writeDataList.push(`![](${item.url_1080})\n\n`)
+    writeDataList.push(
+      `[Download 1920 * 1080](${item.url_1080}) | [Download 3840 * 2160](${item.url_4k})\n\n`
+    )
+  })
+
+  writeFile('./docs/index.md', writeDataList.join(''), err => {
+    if (err) {
+      console.log(err)
+      throw err
+    }
+    console.log(`Done: Write ./docs/index.md completed!`)
+  })
+
+  writeDocsArchive(archives)
+  writeSidebar(archives)
+}
+
+function writeDocsArchive(archives: ArchivesInfo[]) {
+  if (!archives.length) {
+    console.log('Warnning: no archives!')
+    return
+  }
+  if (!existsSync('./docs/archives')) {
+    mkdirSync('./docs/archives')
+  }
+
+  archives.forEach(item => {
+    const { date, mapPath } = item
+    const buffer = readFileSync(mapPath)
+    const stringData = buffer.toString()
+    const imageList = JSON.parse(stringData) as PictureInfo[]
+
+    const writeDataList: string[] = []
+    imageList.forEach(item => {
+      writeDataList.push(`## ${item.date} ${item.title}\n\n`)
+      writeDataList.push(item.copyright + '\n\n')
+      writeDataList.push(`![](${item.url_1080})\n\n`)
+      writeDataList.push(
+        `[Download 1920 * 1080](${item.url_1080}) | [Download 3840 * 2160](${item.url_4k})\n\n`
+      )
+    })
+
+    writeFile(`./docs/archives/${date}.md`, writeDataList.join(''), err => {
+      if (err) {
+        console.log(err)
+        throw err
+      }
+      console.log(`Done: Write ./docs/archives/${date}.md completed!`)
+    })
+  })
+}
+
+function writeSidebar(archives: ArchivesInfo[]) {
+  const sidebar = [{ text: 'The latest 31', link: '/index.md' }]
+  archives.forEach(item => {
+    sidebar.push({
+      text: item.date,
+      link: `/archives/${item.date}.md`
+    })
+  })
+
+  const sidebarDate = 'export default ' + JSON.stringify(sidebar)
+  writeFile(`./docs/.vitepress/sidebar.ts`, sidebarDate, err => {
+    if (err) {
+      console.log(err)
+      throw err
+    }
+    console.log(`Done: Write ./docs/.vitepress/sidebar.ts completed!`)
+  })
 }
