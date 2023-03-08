@@ -1,5 +1,4 @@
 import fetch from 'node-fetch'
-// TODO fs/promises
 import {
   existsSync,
   writeFileSync,
