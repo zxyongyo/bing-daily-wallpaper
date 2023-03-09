@@ -1,8 +1,8 @@
 # Bing Daily Wallpaper
 
-### 2023-03-08 守候浪漫的极光
+### 2023-03-09 雨后见彩虹
 
-![](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
 |      |      |      |
 |:----:|:----:|:----:|
