@@ -27,7 +27,7 @@ main()
 /** 根据已有的 map.json，重写所有文件 */
 function rewrite() {
   try {
-    const buffer = readFileSync('./map.json')
+    const buffer = readFileSync('./output_2.json')
     const stringData = buffer.toString()
     const JSONData = JSON.parse(stringData) as JSONMap
     const images = JSONData.images
@@ -111,7 +111,7 @@ function writeMap(info: PictureInfo) {
     const stringData = buffer.toString()
     const JSONData = JSON.parse(stringData) as JSONMap
     const { images, archives } = JSONData
-    const isRepeat = images.some(v => v.hsh === info.hsh)
+    const isRepeat = images.some(v => v.date === info.date)
     if (isRepeat) {
       // 防止写入重复的
       console.log('Warning: Duplicate data, not written! ↓')

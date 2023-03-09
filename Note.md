@@ -25,3 +25,6 @@
 
 - [x] 不再保存至本地，直接使用 bing的链接
 - [x] 按月归档，README.md 中展示最新的 31张
+
+- [] 修改存档目录 ./archives/${year}/${dateMonth}/${dateMonth}.md
+- [] 将 vitepress 发布到 GitHub page

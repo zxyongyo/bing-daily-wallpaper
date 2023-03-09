@@ -9,6 +9,7 @@
     "build": "tsc && node dist/index.js",
     "docs:dev": "vitepress dev docs",
     "docs:build": "vitepress build docs",
+    "docs:preview": "vitepress preview docs",
     "docs:serve": "vitepress serve docs"
   },
   "repository": {
