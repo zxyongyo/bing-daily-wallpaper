@@ -17,14 +17,23 @@
 ### 任务
 
 - [x] 抓取必应每日一图，下载保存到文件夹。
-- [x] 将数据做一个 map.json，方便使用。
+
+- [x] 将数据做一个 `map.json`，方便使用。
+
 - [ ] 写入对应图片的 story 链接。
+
 - [x] 每日抓取后将图片和信息写入 README.md 方便预览。
+
 - [x] GitHub Action 定时任务，每日自动抓取，写入。
-- [ ] 使用 vitepress 做一个网站方便预览。
+
+- [x] 使用 vitepress 做一个网站方便预览。
+
+- [x] 将 vitepress 发布到 GitHub page
 
 - [x] 不再保存至本地，直接使用 bing的链接
-- [x] 按月归档，README.md 中展示最新的 31张
 
-- [] 修改存档目录 ./archives/${year}/${dateMonth}/${dateMonth}.md
-- [] 将 vitepress 发布到 GitHub page
+- [x] 按月归档，`README.md` 中展示最新的 31张
+
+- [x] 修改存档目录 `./archives/${year}/${dateMonth}/${dateMonth}.md`
+
+- [x] vitepress 左侧目录按 年 月 分级展示

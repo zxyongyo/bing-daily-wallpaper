@@ -19,3 +19,10 @@ type JSONMap = {
   images: PictureInfo[]
   archives: ArchivesInfo[]
 }
+
+type SidebarItem = {
+  text: string
+  link?: string
+  collapsed?: boolean
+  items?: SidebarItem[]
+}

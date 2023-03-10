@@ -27,7 +27,7 @@ main()
 /** 根据已有的 map.json，重写所有文件 */
 function rewrite() {
   try {
-    const buffer = readFileSync('./output_2.json')
+    const buffer = readFileSync('./map.json')
     const stringData = buffer.toString()
     const JSONData = JSON.parse(stringData) as JSONMap
     const images = JSONData.images
@@ -124,8 +124,9 @@ function writeMap(info: PictureInfo) {
     )
 
     const dateMonth = info.date.split('-').slice(0, 2).join('-')
-    const mapPath = `./archives/${dateMonth}/${dateMonth}.json`
-    const previewPath = `./archives/${dateMonth}/${dateMonth}.md`
+    const year = dateMonth.split('-')[0]
+    const mapPath = `./archives/${year}/${dateMonth}/${dateMonth}.json`
+    const previewPath = `./archives/${year}/${dateMonth}/${dateMonth}.md`
     writeArchive(dateMonth, info, mapPath, previewPath)
 
     const isExistsArchive = archives.some(item => item.date.includes(dateMonth))
@@ -268,9 +269,6 @@ function writeDocsArchive(archives: ArchivesInfo[]) {
     console.log('Warnning: no archives!')
     return
   }
-  if (!existsSync('./docs/archives')) {
-    mkdirSync('./docs/archives')
-  }
 
   archives.forEach(item => {
     const { date, mapPath } = item
@@ -288,24 +286,44 @@ function writeDocsArchive(archives: ArchivesInfo[]) {
       )
     })
 
-    writeFile(`./docs/archives/${date}.md`, writeDataList.join(''), err => {
+    const year = date.split('-')[0]
+    const path = `./docs/archives/${year}/${date}.md`
+    const dir = dirname(path)
+    if (!existsSync(dir)) {
+      mkdirSync(dir, {recursive: true})
+    }
+
+    writeFile(path, writeDataList.join(''), err => {
       if (err) {
         console.log(err)
         throw err
       }
-      console.log(`Done: Write ./docs/archives/${date}.md completed!`)
+      console.log(`Done: Write ${path} completed!`)
     })
   })
 }
 
 function writeSidebar(archives: ArchivesInfo[]) {
-  const sidebar = [{ text: 'The latest 31', link: '/index.md' }]
+  const sidebar: SidebarItem[] = [{ text: 'The latest 31', link: '/index.md' }]
+  const archiveMap: Record<string, SidebarItem[]> = {}
+
   archives.forEach(item => {
+    const year = item.date.split('-')[0]
+    if (item.date.includes(year)) {
+      if (!archiveMap[year]) {
+        archiveMap[year] = []
+      }
+      archiveMap[year].push({text: item.date, link: `/archives/${year}/${item.date}.md`})
+    }
+  })
+  Object.keys(archiveMap).forEach(k => {
     sidebar.push({
-      text: item.date,
-      link: `/archives/${item.date}.md`
+      text: k,
+      collapsed: false,
+      items: archiveMap[k]
     })
   })
+  sidebar.sort((a, b) => +b.text - (+a.text))
 
   const sidebarDate = 'export default ' + JSON.stringify(sidebar)
   writeFile(`./docs/.vitepress/sidebar.ts`, sidebarDate, err => {
