@@ -1,6 +1,6 @@
 {
   "name": "bing-daily-wallpaper",
-  "version": "2.1.0",
+  "version": "2.2.0",
   "description": "auto fetch bing daily pictures",
   "main": "dist/index.js",
   "type": "module",
