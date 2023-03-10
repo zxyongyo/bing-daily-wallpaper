@@ -264,6 +264,7 @@ function writeDocs(images: PictureInfo[], archives: ArchivesInfo[]) {
   writeSidebar(archives)
 }
 
+// TODO 优化 只写需要重写的那个 markdown 文件
 function writeDocsArchive(archives: ArchivesInfo[]) {
   if (!archives.length) {
     console.log('Warnning: no archives!')
