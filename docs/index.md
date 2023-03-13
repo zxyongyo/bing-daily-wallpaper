@@ -1,3 +1,11 @@
+## 2023-03-14 美丽的曲径迷宫
+
+阿伊纳帕植物园灌木丛迷宫，塞浦路斯 (© Tpopova/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-03-13 午睡消除烦恼
 
 正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚 (© Cavan Images/Shutterstock)
@@ -237,12 +245,4 @@ Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.BoobyDarwinDay_ZH-CN9917306809_1920x1080.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BoobyDarwinDay_ZH-CN9917306809_1920x1080.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BoobyDarwinDay_ZH-CN9917306809_1920x1080.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-02-11 布满星星的天空
-
-死亡谷扎布里斯基角上空的银河，美国加利福尼亚州 (© Matt Anderson Photography/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.DarkSkiesDV_ZH-CN1076500221_1920x1080.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DarkSkiesDV_ZH-CN1076500221_1920x1080.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DarkSkiesDV_ZH-CN1076500221_1920x1080.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
