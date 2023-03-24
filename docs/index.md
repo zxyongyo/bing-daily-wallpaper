@@ -1,3 +1,11 @@
+## 2023-03-25 通往天堂的楼梯？
+
+塞西尔布鲁尔楼梯，伦敦，英国 (© Yiran An/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.CecilBrewerStaircase_ZH-CN2117182176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CecilBrewerStaircase_ZH-CN2117182176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CecilBrewerStaircase_ZH-CN2117182176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-03-24 你见过大蒜开花吗？
 
 盛开的野蒜，海尼希国家公园，德国 (© Frank Sommariva/Getty Images)
@@ -237,12 +245,4 @@ ballyvooney海岸，科佩海岸地质公园，爱尔兰 (© Andrea Pistolesi/Ge
 ![](https://cn.bing.com/th?id=OHR.BabblingBrook_ZH-CN9371346787_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BabblingBrook_ZH-CN9371346787_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BabblingBrook_ZH-CN9371346787_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-02-22 和平之钟
-
-菲希特尔山脉上的和平钟，萨克森州，德国 (© Jan Drahokoupil/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
