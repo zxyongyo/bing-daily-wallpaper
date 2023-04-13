@@ -1,3 +1,11 @@
+## 2023-04-14 日光下的星星
+
+红海星, 地中海 (© Hans Leijnse/Minden Pictures)
+
+![](https://cn.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-04-13 徒步旅行者的向往之地
 
 斯诺登尼亚国家公园，威尔士，英国 (© Sebastian Wasek/eStock Photo)
@@ -237,12 +245,4 @@ ballyvooney海岸，科佩海岸地质公园，爱尔兰 (© Andrea Pistolesi/Ge
 ![](https://cn.bing.com/th?id=OHR.AgueroSpain_ZH-CN9622864502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AgueroSpain_ZH-CN9622864502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AgueroSpain_ZH-CN9622864502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-03-14 美丽的曲径迷宫
-
-阿伊纳帕植物园灌木丛迷宫，塞浦路斯 (© Tpopova/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
