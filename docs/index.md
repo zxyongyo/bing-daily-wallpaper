@@ -1,3 +1,11 @@
+## 2023-04-27 一望无际的天空
+
+南帕德里岛，美国得克萨斯州 (© Jeff R Clow/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SouthPadre_ZH-CN8788572569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SouthPadre_ZH-CN8788572569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SouthPadre_ZH-CN8788572569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-04-26 一对大雕鸮
 
 大雕鸮幼崽 (© Michael Morse/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.MWDolomites_ZH-CN2886991396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MWDolomites_ZH-CN2886991396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MWDolomites_ZH-CN2886991396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-03-27 云雾缭绕的纽约市
-
-云层中的纽约市天际线 (© Orbon Alija/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.NYCClouds_ZH-CN2585785154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.NYCClouds_ZH-CN2585785154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.NYCClouds_ZH-CN2585785154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
