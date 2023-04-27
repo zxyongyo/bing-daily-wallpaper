@@ -1,3 +1,11 @@
+## 2023-04-28 温暖的阳光穿过古老森林
+
+优胜美地国家公园的马里波萨谷巨杉林，美国加利福尼亚州 (© Orbon Alija/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.MariposaGrove_ZH-CN8957145435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MariposaGrove_ZH-CN8957145435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MariposaGrove_ZH-CN8957145435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-04-27 一望无际的天空
 
 南帕德里岛，美国得克萨斯州 (© Jeff R Clow/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.NuzzleManatee_ZH-CN3263788190_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.NuzzleManatee_ZH-CN3263788190_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.NuzzleManatee_ZH-CN3263788190_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-03-28 这些蔚为壮观的山峰在何处？
-
-意大利三峰山上空的银河 (© Juan Romero/Cavan Images)
-
-![](https://cn.bing.com/th?id=OHR.MWDolomites_ZH-CN2886991396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MWDolomites_ZH-CN2886991396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MWDolomites_ZH-CN2886991396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
