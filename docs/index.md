@@ -1,3 +1,11 @@
+## 2023-04-30 伟大的遗迹
+
+塞利努斯的神庙，西西里岛，意大利 (© Antonino Bartuccio/eStock)
+
+![](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-04-29 沙漠上空的星海
 
 约书亚树国家公园上空的银河，美国加利福尼亚州 (© Schroptschop/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SteyrRiver_ZH-CN3175702026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SteyrRiver_ZH-CN3175702026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SteyrRiver_ZH-CN3175702026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-03-30 华贵的色彩
-
-孔雀羽毛 (© sarayut Thaneerat/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
