@@ -1,3 +1,11 @@
+## 2023-05-10 金光中的灯塔
+
+科尔杜昂灯塔，罗扬市，夏朗德省，法国 (© FRTimelapse/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-05-09 天堂的一角
 
 卡韦希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame/Alamy)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.ElephantTwins_ZH-CN6743766062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ElephantTwins_ZH-CN6743766062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ElephantTwins_ZH-CN6743766062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-04-09 装饰华丽的复活节彩蛋
-
-复活节彩蛋 (© fotomem/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.LithuanianEggs_ZH-CN6609820454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LithuanianEggs_ZH-CN6609820454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LithuanianEggs_ZH-CN6609820454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
