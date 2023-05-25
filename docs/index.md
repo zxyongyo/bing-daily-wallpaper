@@ -1,3 +1,11 @@
+## 2023-05-26 在废墟中寻找美
+
+西沙瓦寺，素可泰历史公园，泰国 (© Casper1774 Studio/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-05-25 童话照进现实
 
 法罗群岛，丹麦 (© miroslav_1/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.GHOAudubonDay_ZH-CN8605905801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GHOAudubonDay_ZH-CN8605905801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GHOAudubonDay_ZH-CN8605905801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-04-25 在浮冰上休闲放松
-
-阿德利企鹅 (© David Merron Photography/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
