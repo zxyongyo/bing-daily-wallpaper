@@ -1,3 +1,11 @@
+## 2023-05-31 一脸好奇的海獭宝宝
+
+海獭宝宝，威廉王子湾，美国阿拉斯加州 (© Donald M. Jones/Minden Pictures)
+
+![](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-05-30 墨西哥的隐秘海滩
 
 埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥 (© ferrantraite/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.QuebecCityBridge_ZH-CN9618387961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.QuebecCityBridge_ZH-CN9618387961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.QuebecCityBridge_ZH-CN9618387961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-04-30 伟大的遗迹
-
-塞利努斯的神庙，西西里岛，意大利 (© Antonino Bartuccio/eStock)
-
-![](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
