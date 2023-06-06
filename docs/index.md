@@ -1,3 +1,11 @@
+## 2023-06-07 如果这些墙会说话······
+
+普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州 (© Ian Shive/Tandem Stills + Motion)
+
+![](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-06-06 诺曼底登陆日
 
 The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)
@@ -237,12 +245,4 @@ The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-05-07 什么事这么好笑？
-
-海豹幼崽，伦迪岛，英国 (© Henley Spiers/Minden Pictures)
-
-![](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
