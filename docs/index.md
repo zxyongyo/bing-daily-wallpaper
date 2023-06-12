@@ -1,3 +1,11 @@
+## 2023-06-13 你是否有勇气进入这片茂密的沼泽
+
+奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国 (© Emmer Photo/Alamy)
+
+![](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-06-12 大弯的生日
 
 仙人掌植物，得克萨斯州大弯国家公园，美国 (© Tim Fitzharris/Minden Pictures)
@@ -237,12 +245,4 @@ The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-05-13 供水系统的历史
-
-曼海姆水塔，德国 (© tichr/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
