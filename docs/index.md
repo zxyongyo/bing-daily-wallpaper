@@ -1,3 +1,11 @@
+## 2023-06-17 桨叶动力
+
+在加利福尼亚州圣地亚哥举行的“为团结划桨”活动 (© Brandon Colbert Photography/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-06-16 鹰嘴海龟
 
 游泳的鹰嘴海龟， 冲绳，日本 (© Robert Mallon/Getty Images)
@@ -237,12 +245,4 @@ The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-05-17 通往太平洋之窗
-
-加利福尼亚州圣克鲁斯的天然桥州立公园 (© Jim Patterson/Tandem Stills + Motion)
-
-![](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
