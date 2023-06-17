@@ -1,3 +1,11 @@
+## 2023-06-18 值班爸爸
+
+普通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-06-17 桨叶动力
 
 在加利福尼亚州圣地亚哥举行的“为团结划桨”活动 (© Brandon Colbert Photography/Getty Images)
@@ -237,12 +245,4 @@ The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-05-18 准备好欢庆吧！
-
-拉曼加，穆尔西亚，西班牙 (© SOMATUSCANI/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
