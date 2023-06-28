@@ -1,3 +1,11 @@
+## 2023-06-29 赞美热带
+
+巴尼亚群岛，苏门答腊，印度尼西亚 (© fbxx/Getty Imagesz)
+
+![](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-06-28 天堂之景！
 
 韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images)
@@ -237,12 +245,4 @@ The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-05-29 人间天堂
-
-萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛 (© Hemis/Alamy)
-
-![](https://cn.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
