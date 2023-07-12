@@ -1,3 +1,11 @@
+## 2023-07-13 行走在彩虹岩石上
+
+张掖国家地质公园，甘肃，中国 (© TONNAJA/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-07-12 世界上最独特的海滩？
 
 “我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy)
@@ -237,12 +245,4 @@ Hong Kong SAR (© leungchopan/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-06-12 大弯的生日
-
-仙人掌植物，得克萨斯州大弯国家公园，美国 (© Tim Fitzharris/Minden Pictures)
-
-![](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
