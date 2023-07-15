@@ -1,3 +1,11 @@
+## 2023-07-16 溪水潺潺
+
+熊洞溪，卡茨基尔山脉，纽约，美国 (© GummyBone/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-07-15 明信片般完美的风景
 
 卡斯泰尔梅扎诺，意大利 (© Rudy Balasko/Shutterstock)
@@ -237,12 +245,4 @@ Hong Kong SAR (© leungchopan/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-06-15 一闪一闪亮晶晶（的小虫子）
-
-同步萤火虫，大烟山国家公园，田纳西州，美国 (© Floris Van Bruegel/Minden Pictures)
-
-![](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
