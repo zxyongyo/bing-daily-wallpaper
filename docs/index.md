@@ -1,3 +1,11 @@
+## 2023-07-19 这片湖泊可不是海市蜃楼
+
+敦煌月牙泉，甘肃省，中国 (© R7 Photo/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-07-18 这只鸟长着尖尖的嘴
 
 双角犀鸟，考艾国家公园，泰国 (© kajornyot wildlife photography/Shutterstock)
@@ -237,12 +245,4 @@ Hong Kong SAR (© leungchopan/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-06-18 值班爸爸
-
-普通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
