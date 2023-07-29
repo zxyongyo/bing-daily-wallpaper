@@ -1,3 +1,11 @@
+## 2023-07-30 宛若仙境的帕卢斯田园
+
+帕卢斯的农田，华盛顿州，美国 (© EJ-J/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-07-29 国际老虎日
 
 孟加拉虎，兰坦波尔国家公园，印度 (© Andy Rouse/Minden Pictures)
@@ -237,12 +245,4 @@ Hong Kong SAR (© leungchopan/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-06-29 赞美热带
-
-巴尼亚群岛，苏门答腊，印度尼西亚 (© fbxx/Getty Imagesz)
-
-![](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
