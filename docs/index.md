@@ -1,3 +1,11 @@
+## 2023-07-31 有人在家吗?
+
+霍金山州立公园的岩石屋，俄亥俄州，美国 (© Kenneth Keifer/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-07-30 宛若仙境的帕卢斯田园
 
 帕卢斯的农田，华盛顿州，美国 (© EJ-J/Getty Images)
@@ -237,12 +245,4 @@ Hong Kong SAR (© leungchopan/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-06-30 孩子，你把鱼扔哪儿了？
-
-棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州 (© Carlos Carreno/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
