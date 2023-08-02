@@ -1,3 +1,11 @@
+## 2023-08-03 绿松石般的泉水
+
+泽伦西自然保护区，斯洛文尼亚 (© Andrey Danilovich/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-08-02 大自然色调的调色板
 
 圆顶礁国家公园的砂岩山丘，犹他州，美国 (© Amazing Aerial Premium/Shutterstock)
@@ -237,12 +245,4 @@ Hong Kong SAR (© leungchopan/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-07-03 天气热得让人想嗷嗷叫！
-
-班夫的土狼，加拿大 (© Harry Collins/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
