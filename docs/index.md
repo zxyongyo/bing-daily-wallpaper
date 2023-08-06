@@ -1,3 +1,11 @@
+## 2023-08-07 地上一点，天上万千
+
+博迪岛灯塔，马头城，北卡罗来纳州，美国 (© Michael Ver Sprill/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-08-06 一面反映大自然之美的镜子
 
 镜池，长野，日本 (© Shoji Fujita/Getty Images)
@@ -237,12 +245,4 @@ Hong Kong SAR (© leungchopan/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-07-07 巧克力爱好者最爱的水果
-
-安班加的可可豆荚，马达加斯加 (© pierivb/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
