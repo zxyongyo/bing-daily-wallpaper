@@ -1,3 +1,11 @@
+## 2023-08-24 自然“鳍”观
+
+鲨鱼鳍湾，达文波特，加利福尼亚州，美国 (© Jeff Lewis/Tandem Stills + Motion)
+
+![](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-08-23 溅起一潭水花
 
 斯科加瀑布，冰岛 (© Maridav/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-07-24 堂/表兄弟姐妹日
-
-斑马，塔兰吉雷国家公园，坦桑尼亚 (© cinoby/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
