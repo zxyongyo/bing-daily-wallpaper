@@ -1,3 +1,11 @@
+## 2023-08-27 一个酷炫的凝灰岩火山口
+
+城山日出峰，济州岛上的凝灰岩锥，韩国 (© Quynh Anh Nguyen/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-08-26 博物馆之夜
 
 柏林大教堂和博物馆岛，柏林，德国 (© Rudy Balasko/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-07-27 凯旋的姿态
-
-卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国 (© Jon Hicks/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
