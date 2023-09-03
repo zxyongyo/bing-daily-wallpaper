@@ -1,3 +1,11 @@
+## 2023-09-04 城市中心的绿色天堂
+
+布尔日的沼泽，法国 (© Tuul & Bruno Morandi/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-09-03 高耸入云
 
 曼哈顿鸟瞰图，纽约市，美国 (© Wojtek Zagorski/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-08-04 一扇通向过去的窗
-
-廷特恩修道院，威尔士 (© matthibcn/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
