@@ -1,3 +1,11 @@
+## 2023-09-15 山谷女王
+
+格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰 (© Peter Zelei/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-09-14 只是两个朋友在玩闹而已
 
 普氏野马，哈斯台国家公园，蒙古国 (© Ondrej Prosicky/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-08-15 发光的矩形广场
-
-四月九日广场，陶尔米纳，西西里岛，意大利 (© rudi1976/Alamy)
-
-![](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
