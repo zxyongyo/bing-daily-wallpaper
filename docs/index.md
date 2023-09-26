@@ -1,3 +1,11 @@
+## 2023-09-27 缓慢平稳地攀登悬崖
+
+克虏伯路，卡普里岛，意大利 (© Mikolaj Niemczewski/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-09-26 给滑板“冲浪”的波浪
 
 日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州 (© EXTREME-PHOTOGRAPHER/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-08-27 一个酷炫的凝灰岩火山口
-
-城山日出峰，济州岛上的凝灰岩锥，韩国 (© Quynh Anh Nguyen/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
