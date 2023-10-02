@@ -1,3 +1,11 @@
+## 2023-10-03 圣灵群岛之旅
+
+白天堂海滩，圣灵群岛，昆士兰州，澳大利亚 (© Coral Brunner/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-10-02 普罗旺斯大峡谷
 
 韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国 (© luisapuccini/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-09-02 停下来喝点花蜜
-
-艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国 (© mallardg500/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
