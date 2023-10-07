@@ -1,3 +1,11 @@
+## 2023-10-08 贝壳庇护所
+
+巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚 (© Alex Mustard/Minden Pictures)
+
+![](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-10-07 吃三文鱼自助餐的时间到了
 
 灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国 (© oksana.perkins/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-09-07 沙漠之舟
-
-沙漠中的骆驼，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
