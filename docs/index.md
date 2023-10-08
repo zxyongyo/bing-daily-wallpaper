@@ -1,3 +1,11 @@
+## 2023-10-09 古老的事故，古代的艺术
+
+弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国 (© Dan Leeth/Alamy)
+
+![](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-10-08 贝壳庇护所
 
 巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚 (© Alex Mustard/Minden Pictures)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-09-08 简·奥斯汀的文学圈
-
-巴斯圆形广场，萨默塞特 ，英国 (© Gavin Hellier/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
