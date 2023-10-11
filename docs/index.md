@@ -1,3 +1,11 @@
+## 2023-10-12 趁热打铁，勿失良机！
+
+帕卢斯地区的老谷仓和油菜田，爱达荷州，美国 (© Terry Eggers/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-10-11 消失的回声
 
 约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国 (© Ben Herndon/Tandem Stills + Motion)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-09-11 历史、自然和美酒交汇之地
-
-波尔多葡萄园的日出，法国 (© Esperanza33/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
