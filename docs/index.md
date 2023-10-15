@@ -1,3 +1,11 @@
+## 2023-10-16 确实令人着迷
+
+金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-10-15 该位置已被占领
 
 躲在树皮中欧洲刺猬，苏塞克斯，英国 (© Jules Cox/Minden Pictures)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-09-15 山谷女王
-
-格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰 (© Peter Zelei/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
