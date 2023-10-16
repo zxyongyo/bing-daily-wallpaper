@@ -1,3 +1,11 @@
+## 2023-10-17 赤血群岛的守护者
+
+帕拉塔塔,阿雅克肖,科西嘉岛,法国 (© Jon Ingall/Alamy)
+
+![](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-10-16 确实令人着迷
 
 金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-09-16 系好你的安全带！
-
-施布吕根山口，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
