@@ -1,3 +1,11 @@
+## 2023-10-23 “迷”人之境
+
+塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国 (© Alex Potemkin/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-10-22 一条用桁架架起来的公路
 
 哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国 (© Dan Mihai/Getty Images)
@@ -237,12 +245,4 @@ Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔�
 ![](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-09-22 马尔萨拉，西西里岛的奇迹之一
-
-马尔萨拉盐田，意大利 (© javarman3/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
