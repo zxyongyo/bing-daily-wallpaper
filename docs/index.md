@@ -1,3 +1,11 @@
+## 2023-10-24 这片迷雾密布的树林里潜藏着什么?
+
+桑佩伦山上的菲泽尔城堡，匈牙利 (© ZGPhotography/Alamy)
+
+![](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-10-23 “迷”人之境
 
 塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国 (© Alex Potemkin/Getty Images)
@@ -237,12 +245,4 @@ Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔�
 ![](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-09-23 沐浴在秋天的色彩中
-
-郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州 (© Stephen Matera/Tandem Stills + Motion)
-
-![](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
