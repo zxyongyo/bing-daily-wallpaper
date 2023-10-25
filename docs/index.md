@@ -1,3 +1,11 @@
+## 2023-10-26 落叶爱好者的天堂
+
+美泉宫公园的秋叶，维也纳，奥地利 (© rusm/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-10-25 秋天的一抹金色
 
 大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国 (© Jeff Foott/Minden Pictures)
@@ -237,12 +245,4 @@ Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔�
 ![](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-09-25 躺下来放松一下吧
-
-巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion)
-
-![](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
