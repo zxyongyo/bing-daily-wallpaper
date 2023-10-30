@@ -1,3 +1,11 @@
+## 2023-10-31 恶灵们只想玩个开心。
+
+万圣节南瓜灯 (© Bing Image Creator)
+
+![](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-10-30 黑衣美人
 
 普通乌鸦坐在树枝上 (© WildMedia/Shutterstock)
@@ -237,12 +245,4 @@ Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔�
 ![](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-09-30 啊！仙纳度
-
-仙纳度国家公园的秋色，弗吉尼亚州 (© Michael Ver Sprill/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
