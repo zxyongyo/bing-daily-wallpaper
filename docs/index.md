@@ -1,3 +1,11 @@
+## 2023-11-16 西方哲学的发源地
+
+雅典和卫城，希腊 (© Mlenny/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-11-15 想象一下此处的回声
 
 萨雷克国家公园的拉帕谷，瑞典 (© Hans Strand/Getty Images)
@@ -237,12 +245,4 @@ Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔�
 ![](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-10-16 确实令人着迷
-
-金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)
-
-![](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
