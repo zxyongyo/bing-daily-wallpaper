@@ -1,3 +1,11 @@
+## 2023-11-22 人少景美的静谧之地
+
+大提顿国家公园，怀俄明州，美国 (© Westend61/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-11-21 欢迎来到这个世界！
 
 英国诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures)
@@ -237,12 +245,4 @@ Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/S
 ![](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-10-22 一条用桁架架起来的公路
-
-哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国 (© Dan Mihai/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
