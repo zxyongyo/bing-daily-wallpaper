@@ -1,3 +1,11 @@
+## 2023-11-27 水上明镜
+
+内格罗河，亚马逊河流域，巴西 (© Timothy Allen/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-11-26 谁踩到树枝了?
 
 布拉德盖特公园的小鹿，莱斯特郡，英国 (© Chris Bainbridge/Alamy)
@@ -237,12 +245,4 @@ Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/S
 ![](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-10-27 魔法之河深不见底
-
-斯利加坎老桥，苏格兰斯凯岛 (© Aliaume Chapelle/Tandem Stills + Motion)
-
-![](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
