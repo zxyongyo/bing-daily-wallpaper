@@ -1,3 +1,11 @@
+## 2023-11-28 冬日私语
+
+阿西尼博因山省级公园，加拿大 (© matt macpherson/500px/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-11-27 水上明镜
 
 内格罗河，亚马逊河流域，巴西 (© Timothy Allen/Getty Images)
@@ -237,12 +245,4 @@ Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/S
 ![](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-10-28 西班牙骑士的“劲敌”
-
-卡斯蒂利亚-拉曼恰的风车，西班牙 (© Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
