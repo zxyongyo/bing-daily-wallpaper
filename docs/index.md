@@ -1,3 +1,11 @@
+## 2023-12-02 永恒的瑰宝
+
+瓜廖尔堡，中央邦，印度 (© Dmitry Rukhlenko-Photos of India/Alamy)
+
+![](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-12-01 为最酷的地方欢呼！
 
 罗斯海的冰山，南极洲 (© Michel Roggo/Minden Pictures)
@@ -237,12 +245,4 @@ Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/S
 ![](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-11-01 你知道“阿尔萨斯之眼”吗？
-
-上巴尔城堡，阿尔萨斯，法国 (© Andrea Pistolesi/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
