@@ -1,3 +1,11 @@
+## 2023-12-07 欧洲大峡谷
+
+韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国 (© Hemis/Alamy)
+
+![](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-12-06 穿过群山的蜿蜒小路
 
 达尔达尼亚瀑布，博洛尼亚，意大利 (© Alberto Ghizzi Panizza/Minden)
@@ -237,12 +245,4 @@ Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/S
 ![](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-11-06 照亮你忧郁的心
-
-佩霍湖，百内国家公园，智利南部 (© OST/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
