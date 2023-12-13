@@ -1,3 +1,11 @@
+## 2023-12-14 融为一体的猫头鹰
+
+北方猫头鹰，萨斯喀彻温省，加拿大 (© Nick Saunders/Minden Pictures)
+
+![](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2023-12-13 小屋生活
 
 传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威 (© Roberto Moiola/Sysaworld/Getty Images)
@@ -237,12 +245,4 @@ Alam-Pedja自然保护区，爱沙尼亚 (© Sven Zacek/Minden Pictures)
 ![](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-11-13 从树上到餐桌之上
-
-特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙 (© cinoby/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
