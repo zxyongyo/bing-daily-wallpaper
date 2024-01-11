@@ -1,3 +1,11 @@
+## 2024-01-12 北汉山的花岗岩山峰
+
+北汉山国立公园，韩国 (© TRAVEL TAKE PHOTOS/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-01-11 长胡须的“流浪汉”
 
 雪中的欧亚猞猁 (© Jan Stria/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-12-12 把你的世界涂成红色
-
-一品红 (© Yarygin/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
