@@ -1,3 +1,11 @@
+## 2024-01-23 印度洋之眼
+
+印度洋的环礁，马尔代夫 (© Amazing Aerial Premium/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-01-22 魔幻时刻
 
 冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国 (© Jeff Lewis/Tandem Stills + Motion)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2023-12-23 它们看起来有话要说
-
-帽带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures)
-
-![](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
