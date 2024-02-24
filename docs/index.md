@@ -1,3 +1,11 @@
+## 2024-02-25 薄雾笼罩
+
+考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省 (© Kevin Oke/Alamy)
+
+![](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-02-24 点亮一盏明灯，愿您万事顺意！
 
 锦里街上悬挂的红色中国灯笼，成都，中国四川省 (© Philippe LEJEANVRE/Getty images)
@@ -237,12 +245,4 @@ Kinder Scout，峰区国家公园，英国 (© john finney photography/Getty Ima
 ![](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3403840167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=2160&rs=1&c=4)
-
-## 2024-01-25 通往过去的入口
-
-圣德温教堂的废墟，莫纳岛，威尔士，英国 (© Photos by R A Kearton/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
