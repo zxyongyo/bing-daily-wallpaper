@@ -1,3 +1,11 @@
+## 2024-03-05 陷入循环之中？
+
+曼谷的交通圈和高速公路，泰国 (© Avigator Fortuner/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-03-04 睡美人
 
 从蒙特维多看到的阿雷纳尔火山,哥斯达黎加 (© Lukas Bischoff/Getty Images)
@@ -237,12 +245,4 @@ Kinder Scout，峰区国家公园，英国 (© john finney photography/Getty Ima
 ![](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-02-03 伪装的日子
-
-大运河与安康圣母大教堂，威尼斯，意大利 (© Rudy Balasko/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
