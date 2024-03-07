@@ -1,3 +1,11 @@
+## 2024-03-08 世界新七大自然奇观之一
+
+伊瓜苏大瀑布鸟瞰图，巴西 (© Nido Huebl/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-03-07 攀登新的高峰
 
 Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙 (© Sergi Boixader/Alamy Stock Photo)
@@ -237,12 +245,4 @@ Kinder Scout，峰区国家公园，英国 (© john finney photography/Getty Ima
 ![](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-02-06 天然盆景
-
-盆景岩，太浩湖，内华达州，美国 (© Jim Patterson/Tandem Stills + Motion)
-
-![](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
