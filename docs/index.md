@@ -1,3 +1,11 @@
+## 2024-03-12 峡谷的守护者
+
+布莱斯峡谷国家公园，犹他州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-03-11 醉人的山峦
 
 Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利 (© Richard T. Nowitz/Getty Images)
@@ -237,12 +245,4 @@ Kinder Scout，峰区国家公园，英国 (© john finney photography/Getty Ima
 ![](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-02-10 福起新岁，万事顺意
-
-中国舞狮，大年初一 (© SENEZ/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
