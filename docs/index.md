@@ -1,3 +1,11 @@
+## 2024-03-27 戏剧成为关注的焦点
+
+布宜诺斯艾利斯哥伦布剧院，阿根廷 (© Wei Hao Ho/Alamy Stock Photo)
+
+![](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-03-26 潮汐探戈
 
 海水从古老的珊瑚礁上倾泻而下，杭莱，越南 (© Thang Tat Nguyen/Getty Images)
@@ -237,12 +245,4 @@ Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国 (© Eric Vogt/Ta
 ![](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-02-25 薄雾笼罩
-
-考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省 (© Kevin Oke/Alamy)
-
-![](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
