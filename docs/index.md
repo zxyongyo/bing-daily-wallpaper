@@ -1,3 +1,11 @@
+## 2024-04-06 皇家景观
+
+姬路城，姫路，兵库县，日本 (© Julian Elliott Photography/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-04-05 潜入碧海
 
 从国际空间站拍摄的巴哈马群岛 (© NASA)
@@ -237,12 +245,4 @@ Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙 (© Ser
 ![](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-03-06 尽情地嬉戏玩水吧！
-
-Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国 (© Eric Vogt/Tandem Stills + Motion)
-
-![](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
