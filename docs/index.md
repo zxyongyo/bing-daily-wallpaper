@@ -1,3 +1,11 @@
+## 2024-04-18 名誉之墙
+
+中世纪城墙，阿维拉，西班牙 (© Scott Suriano/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-04-17 我是不是睡得太久了？
 
 春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国 (© Scott Suriano/Getty Images)
@@ -237,12 +245,4 @@ At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦 (�
 ![](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-03-18 温柔的“沙丘巨人”
-
-大象岩，古城欧拉，沙特阿拉伯 (© Lubo Ivanko/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
