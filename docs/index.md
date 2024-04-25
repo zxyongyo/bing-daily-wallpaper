@@ -1,3 +1,11 @@
+## 2024-04-26 这棵树是个快乐的家伙！
+
+卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国 (© Abbie Warnock-Matthews/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-04-25 很高兴在这里见到你们！
 
 南极洲冰山上的阿德利企鹅 (© Patrick J. Endres/Getty Images)
@@ -237,12 +245,4 @@ At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦 (�
 ![](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-03-26 潮汐探戈
-
-海水从古老的珊瑚礁上倾泻而下，杭莱，越南 (© Thang Tat Nguyen/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
