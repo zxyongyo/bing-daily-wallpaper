@@ -1,3 +1,11 @@
+## 2024-04-29 被保存得很好的古建筑
+
+福建土楼，福建省历史文化遗产建筑，中国 (© Hongjie Han/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-04-28 去公园走走吧！
 
 瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国 (© Adam Mowery/Tandem Stills + Motion)
@@ -237,12 +245,4 @@ At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦 (�
 ![](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-03-29 潮涨潮落，灯火通明
-
-日落时的南斯塔克灯塔，霍利希德，威尔士，英国 (© mariotlr/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
