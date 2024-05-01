@@ -1,3 +1,11 @@
+## 2024-05-02 “月球一日游”
+
+蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国 (© Alan Majchrowicz/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-05-01 夏威夷的花环节
 
 夏威夷花环 (© Jotika Pun/Shutterstock)
@@ -237,12 +245,4 @@ At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦 (�
 ![](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-04-01 岌岌可危的冰川
-
-勃朗峰上的冰海，夏慕尼，法国 (© Hagenmuller Jean-François/Hemis/Alamy)
-
-![](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
