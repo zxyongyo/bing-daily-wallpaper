@@ -1,3 +1,11 @@
+## 2024-05-11 小蓝鸟一路顺风
+
+树枝上栖息的靛蓝彩鹀，德克萨斯州 (© Jeff R Clow/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-05-10 岛屿在召唤！
 
 米苏尔岛，拉贾安帕群岛，印度尼西亚 (© Giordano Cipriani/Getty Images)
@@ -237,12 +245,4 @@ Cades Cove ，大雾山国家公园，田纳西州，美国 (© Richard Bernabe/
 ![](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-04-10 猫头鹰在你身边！
-
-洞穴附近的穴小鸮雏鸟，怀俄明州，美国 (© Danita Delimont/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
