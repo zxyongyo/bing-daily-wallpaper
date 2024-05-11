@@ -1,3 +1,11 @@
+## 2024-05-12 放牧和饲养
+
+潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷 (© Gabriel Rojo/Minden Pictures)
+
+![](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-05-11 小蓝鸟一路顺风
 
 树枝上栖息的靛蓝彩鹀，德克萨斯州 (© Jeff R Clow/Getty Images)
@@ -237,12 +245,4 @@ Cades Cove ，大雾山国家公园，田纳西州，美国 (© Richard Bernabe/
 ![](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-04-11 把梦想变成现实！
-
-丘伦梅鲁瀑布鸟瞰图，委内瑞拉 (© AirPano LLC/Amazing Aerial Agency)
-
-![](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
