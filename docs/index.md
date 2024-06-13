@@ -1,3 +1,11 @@
+## 2024-06-14 孤独，但不寂寞
+
+佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-06-13 瓷砖的故事
 
 雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒 (© da-kuk/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-05-14 “深渊”探险
-
-通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州 (© Doug Meek/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
