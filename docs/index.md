@@ -1,3 +1,11 @@
+## 2024-06-21 清凉的湖水
+
+蓝色水面上的渔船航拍图，郴州市，湖南省，中国 (© Haitong Yu/Getty images)
+
+![](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-06-20 夏天的脚步近了
 
 科基诺，古代巨石观测站，北马其顿 (© stoimilov/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-05-21 充满茶香的一天
-
-卡梅隆高地茶园，马拉西亚 (© alex cheong/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
