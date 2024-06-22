@@ -1,3 +1,11 @@
+## 2024-06-23 漆黑的夜晚，城市的灯光
+
+达卡环形交叉路口的鸟瞰图，孟加拉国 (© Azim Khan Ronnie/Amazing Aerial Agency)
+
+![](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-06-22 迷失在迷雾之中
 
 亚马逊雨林，巴西 (© Claus Meyer/plainpicture)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-05-23 寻找一个“庇护所”
-
-印度星龟，斯里兰卡 (© Robin Chittenden/Minden Pictures)
-
-![](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
