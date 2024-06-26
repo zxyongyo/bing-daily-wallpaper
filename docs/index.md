@@ -1,3 +1,11 @@
+## 2024-06-27 “甜蜜的”穹顶
+
+黄昏时分的圣母百花大教堂，佛罗伦萨，意大利 (© Elena Pueyo/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-06-26 美丽的条纹小鱼！
 
 考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚 (© Constantinos Petrinos/NPL/Minden Pictures)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-05-27 我们去乘船吧！
-
-塞斯特里莱万特的沉默湾，利古里亚大区，意大利 (© StevanZZ/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
