@@ -1,3 +1,11 @@
+## 2024-07-16 挖掘过去
+
+斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰 (© Paul Williams - FunkyStock/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-07-15 宁静惬意的海滨风光
 
 立石公园，神奈川县，日本 (© blew_s/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-06-15 有志者事竟成
-
-在纳扎雷冲浪的冲浪者，葡萄牙 (© Rui Caria/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
