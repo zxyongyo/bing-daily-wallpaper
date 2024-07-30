@@ -1,3 +1,11 @@
+## 2024-07-31 这里有“胡图”吗？
+
+石林，日落点，布莱斯峡谷国家公园，犹他州，美国 (© Tim Fitzharris/Minden Pictures)
+
+![](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-07-30 中世纪的曼哈顿
 
 圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚 (© MNStudio/Shutterstock)
@@ -237,12 +245,4 @@ Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pic
 ![](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-06-30 你不会忘记它的！
-
-乌布寺庙的石雕,巴厘岛,印度尼西亚 (© R. Schönebaum/plainpicture)
-
-![](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
