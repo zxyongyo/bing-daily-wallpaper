@@ -1,3 +1,11 @@
+## 2024-08-01 物价喜人
+
+卡普泰湖水上市场，兰加马蒂，孟加拉 (© Azim Khan Ronnie/Amazing Aerial Agency)
+
+![](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-07-31 这里有“胡图”吗？
 
 石林，日落点，布莱斯峡谷国家公园，犹他州，美国 (© Tim Fitzharris/Minden Pictures)
@@ -237,12 +245,4 @@ Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pic
 ![](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-07-01 为加拿大干杯
-
-菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大 (© davemantel/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
