@@ -1,3 +1,11 @@
+## 2024-08-10 星空下的约书亚树
+
+约书亚树国家公园，加利福尼亚州，美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)
+
+![](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-08-09 弘扬土著文化
 
 库斯科附近的萨克塞华曼印加遗址，秘鲁 (© SL_Photography/Getty Images)
@@ -237,12 +245,4 @@ Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pic
 ![](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-07-10 感恩的巨嘴鸟
-
-领簇舌巨嘴鸟，哥斯达黎加 (© Juan Carlos Vindas/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
