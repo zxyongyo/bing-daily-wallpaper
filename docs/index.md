@@ -1,3 +1,11 @@
+## 2024-08-11 人迹罕至的路
+
+通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省 (© EB Adventure Photography/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-08-10 星空下的约书亚树
 
 约书亚树国家公园，加利福尼亚州，美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)
@@ -237,12 +245,4 @@ Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pic
 ![](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-07-11 你是81亿人口中的一员
-
-甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency)
-
-![](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
