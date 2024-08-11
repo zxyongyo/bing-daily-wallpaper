@@ -1,3 +1,11 @@
+## 2024-08-12 你的声音嘹亮而清晰
+
+非洲象，肯尼亚安博塞利国家公园 (© Ruzdi Ekenheim/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-08-11 人迹罕至的路
 
 通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省 (© EB Adventure Photography/Shutterstock)
@@ -237,12 +245,4 @@ Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pic
 ![](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-07-12 风雨无阻
-
-雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
