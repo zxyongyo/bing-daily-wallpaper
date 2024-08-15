@@ -1,3 +1,11 @@
+## 2024-08-16 系好安全带！
+
+长岛温泉乐园的过山车，三重县，日本 (© Japanese amateur photographer/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-08-15 “洞”之新世界
 
 韩松洞，风牙者榜国家公园，越南 (© Geng Xu/Getty Images)
@@ -237,12 +245,4 @@ Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pic
 ![](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-07-16 挖掘过去
-
-斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰 (© Paul Williams - FunkyStock/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
