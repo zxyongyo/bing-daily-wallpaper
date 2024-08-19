@@ -1,3 +1,11 @@
+## 2024-08-20 鹿和羚羊嬉戏的地方
+
+大提顿国家公园日出,怀俄明州,美国 (© Kurt Budliger/TANDEM Stills + Motion)
+
+![](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-08-19 铿锵有力的打击乐
 
 Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty Images)
@@ -237,12 +245,4 @@ Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty I
 ![](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-07-20 到月亮上去
-
-月球 (© Victor Blum/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
