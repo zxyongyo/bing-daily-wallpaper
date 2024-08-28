@@ -1,3 +1,11 @@
+## 2024-08-29 加泰罗尼亚式的悬念
+
+富利特堡-德拉罗卡，加泰罗尼亚，西班牙 (© Eloi_Omella/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-08-28 比赛开始！
 
 蒙马特和圣心大教堂，巴黎，法国 (© Tuul & Bruno Morandi/Getty Images)
@@ -237,12 +245,4 @@ Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty I
 ![](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-07-29 咆哮与探索
-
-科贝国家公园的老虎兄弟，北阿坎德邦，印度 (© Sourabh Bharti/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
