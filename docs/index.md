@@ -1,3 +1,11 @@
+## 2024-09-01 小船轻轻划过泰晤士河
+
+泰晤士河，伦敦，英国 (© Puthipong Worasaran/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-08-31 沙丘日和沙漠烟霞
 
 撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚 (© Airpano/Amazing Aerial Agency)
@@ -237,12 +245,4 @@ Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty I
 ![](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-08-01 物价喜人
-
-卡普泰湖水上市场，兰加马蒂，孟加拉 (© Azim Khan Ronnie/Amazing Aerial Agency)
-
-![](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
