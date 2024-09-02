@@ -1,3 +1,11 @@
+## 2024-09-03 原始之美，人人共享
+
+迷人的水晶湖，高山湖泊，华盛顿州，美国 (© Mitch Pittman/Tandem Stills + Motion)
+
+![](https://cn.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-09-02 红绿金刚鹦鹉之家
 
 红绿金刚鹦鹉，南马托格罗索州，巴西 (© Ellen Goff/Danita Delimont)
@@ -237,12 +245,4 @@ Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty I
 ![](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-08-03 武隆景区的“三生三世”
-
-天生三桥，重庆武隆岩溶国家地质公园，中国 (© Pav-Pro Photography Ltd/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
