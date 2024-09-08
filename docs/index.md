@@ -1,3 +1,11 @@
+## 2024-09-09 “大水”中的彩虹波
+
+阿根廷和巴西边境的伊瓜苏瀑布 (© AirPano LLC/Amazing Aerial Agency)
+
+![](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-09-08 一座千年历史的修道院
 
 加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国 (© Cyril Gosselin/Getty Images)
@@ -237,12 +245,4 @@ Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty I
 ![](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-08-09 弘扬土著文化
-
-库斯科附近的萨克塞华曼印加遗址，秘鲁 (© SL_Photography/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
