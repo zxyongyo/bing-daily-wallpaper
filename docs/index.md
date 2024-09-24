@@ -1,3 +1,11 @@
+## 2024-09-25 古代巨人的王国
+
+巨型红杉，红杉国家公园，加利福尼亚州，美国 (© Galyna Andrushko/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-09-24 你会相信这种观点吗？
 
 斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛 (© Nopasorn Kowathanakul/Getty Images)
@@ -237,12 +245,4 @@ Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-08-24 尽享森林与水域之美
-
-卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国 (© Cavan Images/Alamy Stock Photo)
-
-![](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
