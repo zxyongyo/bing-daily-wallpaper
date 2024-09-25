@@ -1,3 +1,11 @@
+## 2024-09-26 呼叫所有巨嘴鸟的粉丝
+
+蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加 (© Oscar Dominguez/Tandem Stills + Motion)
+
+![](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-09-25 古代巨人的王国
 
 巨型红杉，红杉国家公园，加利福尼亚州，美国 (© Galyna Andrushko/Shutterstock)
@@ -237,12 +245,4 @@ Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-08-25 守护这片乐园
-
-急流湖的日出，冰川国家公园，蒙大拿州，美国 (© Jason Savage/Tandem Stills + Motion)
-
-![](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
