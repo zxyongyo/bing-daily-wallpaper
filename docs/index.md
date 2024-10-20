@@ -1,3 +1,11 @@
+## 2024-10-21 在秋天里傲然挺立
+
+乔治·史密斯州立公园的柏树，佐治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)
+
+![](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-10-20 坚持住
 
 哥斯达黎加的三趾树懒 (© Harry Collins/Getty Images)
@@ -237,12 +245,4 @@ Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-09-20 海盗的最终归宿
-
-奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国 (© Chansak Joe/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
