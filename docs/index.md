@@ -1,3 +1,11 @@
+## 2024-10-29 猫头鹰的叫声在萦绕
+
+大雕鸮 (© Mark Newman/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-10-28 雕刻时间到了
 
 南瓜田，维多利亚，不列颠哥伦比亚省，加拿大 (© Shaun Cunningham/Alamy Stock Photo)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-09-28 海湾群岛的光芒
-
-日出时的海滩，海湾岛国家海岸，佛罗里达，美国 (© Tim Fitzharris/Minden Pictures)
-
-![](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
