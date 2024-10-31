@@ -1,3 +1,11 @@
+## 2024-11-01 引以为豪的传统
+
+秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国 (© Sabine Gerold/Amazing Aerial Agency)
+
+![](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-10-31 万圣节时冷冰冰的凝视
 
 巴黎圣母院的奇美拉，法国 (© scaliger/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-10-01 绝美的秋日风景
-
-禾木村的风景，新疆，中国 (© snvv18870020330/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
