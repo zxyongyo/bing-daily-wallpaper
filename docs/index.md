@@ -1,3 +1,11 @@
+## 2024-11-08 来自冰与火之国
+
+冰岛冰川河流鸟瞰图 (© rybarmarekk/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-11-07 初冬之美
 
 金色的松树，坝上草原，中国 (© MelindaChan/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-10-08 托斯卡纳的石头小镇
-
-索拉诺，托斯卡纳，意大利 (© Luigi Vaccarella/eStock Photo)
-
-![](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
