@@ -1,3 +1,11 @@
+## 2024-11-10 飞行中的火烈鸟
+
+加勒比火烈鸟，尤卡坦半岛，墨西哥 (© Claudio Contreras/NPL/Minden Pictures)
+
+![](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-11-09 红尘中的宇宙美景
 
 银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-10-10 托斯卡纳的石头小镇
-
-索拉诺，托斯卡纳，意大利 (© Luigi Vaccarella/eStock Photo)
-
-![](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
