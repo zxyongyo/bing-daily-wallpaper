@@ -1,3 +1,11 @@
+## 2024-11-19 令人震撼的拱门
+
+塔斯曼拱门，塔斯马尼亚州，澳大利亚 (© Gary Bell/Minden Pictures)
+
+![](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-11-18 一直指引着方向
 
 波斯考尔灯塔，南威尔士，英国 (© Leighton Collins/Alamy)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-10-19 立足现在，发掘过去
-
-哈索尔神庙，邓德拉神庙群，基纳，埃及 (© Nick Brundle Photography/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
