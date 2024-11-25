@@ -1,3 +1,11 @@
+## 2024-11-26 有数百年历史的橄榄树
+
+橄榄树林，伊特里亚山谷，普利亚，意大利 (© Massimo Santi/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-11-25 野生动物的生活
 
 马赛长颈鹿，安波塞利国家公园，肯尼亚 (© Art Wolfe/DanitaDelimont.com)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-10-26 海边的神秘树林
-
-幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国 (© mauritius images GmbH/Alamy Stock Photo)
-
-![](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
