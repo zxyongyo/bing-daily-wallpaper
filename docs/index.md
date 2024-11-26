@@ -1,3 +1,11 @@
+## 2024-11-27 巨人的安息之地
+
+秋天的巨人之墓，布永市，比利时 (© David Briard/Getty)
+
+![](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-11-26 有数百年历史的橄榄树
 
 橄榄树林，伊特里亚山谷，普利亚，意大利 (© Massimo Santi/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-10-27 寒风中的温情
-
-北极熊与幼崽，丘吉尔，曼尼托巴，加拿大 (© Design Pics/plainpicture)
-
-![](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
