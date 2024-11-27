@@ -1,3 +1,11 @@
+## 2024-11-28 山峰从云层中探出头来
+
+日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大 (© Jeff Lewis/TANDEM Stills + Motion)
+
+![](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-11-27 巨人的安息之地
 
 秋天的巨人之墓，布永市，比利时 (© David Briard/Getty)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-10-28 雕刻时间到了
-
-南瓜田，维多利亚，不列颠哥伦比亚省，加拿大 (© Shaun Cunningham/Alamy Stock Photo)
-
-![](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
