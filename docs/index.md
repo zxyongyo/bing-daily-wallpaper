@@ -1,3 +1,11 @@
+## 2024-11-30 探秘苏格兰的遗产
+
+基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰 (© Tom Mackie/plainpicture)
+
+![](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-11-29 时间与潮汐之岛
 
 圣米歇尔山，诺曼底，法国 (© Captain Skyhigh/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-10-30 令人毛骨悚然的历史
-
-从苏格兰教堂墓地眺望爱丁堡城堡，英国 (© Chris Dorney/Alamy Stock Photo)
-
-![](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
