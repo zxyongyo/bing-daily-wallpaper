@@ -1,3 +1,11 @@
+## 2024-12-08 巴黎圣母院再度回归
+
+巴黎圣母院，巴黎，法国 (© Julien Fromentin/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-12-07 自然奇观的蓝色魅力
 
 里约热内卢州的阿拉亚尔多卡博，巴西 (© Derson Santana/Shutterstock)
@@ -237,12 +245,4 @@ Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度 (© Yury Taranik/Shutter
 ![](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-11-07 初冬之美
-
-金色的松树，坝上草原，中国 (© MelindaChan/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
