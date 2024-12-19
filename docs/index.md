@@ -1,3 +1,11 @@
+## 2024-12-20 圣诞老人要来镇上了
+
+罗瓦涅米圣诞老人村，拉普兰，芬兰 (© Smelov/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-12-19 闪烁的小镇
 
 锡比乌圣诞市场，罗马尼亚 (© Calin Stan/Alamy Stock Photo)
@@ -237,12 +245,4 @@ Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度 (© Yury Taranik/Shutter
 ![](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-11-19 令人震撼的拱门
-
-塔斯曼拱门，塔斯马尼亚州，澳大利亚 (© Gary Bell/Minden Pictures)
-
-![](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
