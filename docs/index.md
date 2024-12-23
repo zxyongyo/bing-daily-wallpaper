@@ -1,3 +1,11 @@
+## 2024-12-24 祝你圣诞快乐！
+
+德国圣诞市场 (© Cyril Gosselin/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-12-23 准备好发泄一些压力了吗？
 
 钏路的两只丹顶鹤，北海道，日本 (© Wirestock, Inc./Alamy Stock Photo)
@@ -237,12 +245,4 @@ Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度 (© Yury Taranik/Shutter
 ![](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-11-23 大自然的密码
-
-多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)
-
-![](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
