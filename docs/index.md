@@ -1,3 +1,11 @@
+## 2025-01-01 过一个冰雪元旦！
+
+在北极玩耍的北极熊 (© Ondrej Prosicky/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2024-12-31 新年快乐！
 
 国会山上空的烟花，渥太华，加拿大 (© naibank/Getty Images)
@@ -237,12 +245,4 @@ Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度 (© Yury Taranik/Shutter
 ![](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-12-01 保护最后一片大荒野
-
-南极洲的冰山 (© Art Wolfe/DanitaDelimont.com)
-
-![](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
