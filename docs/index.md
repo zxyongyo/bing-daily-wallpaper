@@ -1,3 +1,11 @@
+## 2025-01-11 旧时代的古老拱门
+
+梅克内斯的Heri es-Swani，摩洛哥 (© Calin Stan/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-01-10 冰层中气泡奇观
 
 亚伯拉罕湖，阿尔伯塔省，加拿大 (© Basic Elements Photography/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-12-11 山峰的“胜利三重奏”
-
-拉瓦雷多三峰山,意大利 (© Daniel Maran/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
