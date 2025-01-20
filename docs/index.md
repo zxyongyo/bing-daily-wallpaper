@@ -1,3 +1,11 @@
+## 2025-01-21 迷人的海湾风光
+
+俯瞰那不勒斯湾和维苏威火山，意大利 (© ezypix/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-01-20 松鼠之趣
 
 欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures)
@@ -237,12 +245,4 @@ Village of Zahara de la Sierra, Cádiz province, Spain (© SEN LI/Getty Images)
 ![](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2024-12-21 极致的冬日景色
-
-满拉水库的雪景，日喀则，中国西藏自治区 (© Zhang Zhenqi/VCG via Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
