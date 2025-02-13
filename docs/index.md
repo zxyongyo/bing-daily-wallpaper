@@ -1,3 +1,11 @@
+## 2025-02-14 瞧这对恩爱的情侣
+
+两只麦哲伦企鹅，福克兰群岛 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-02-13 大地之盐
 
 泰瑞尔湖，维多利亚州，澳大利亚 (© Monica Bertolazzi/Getty Images)
@@ -237,12 +245,4 @@ Pointe du Diable，圣皮埃尔，留尼汪岛 (© MONTICO Lionel/Alamy)
 ![](https://cn.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-01-14 宁静之地
-
-Village of Zahara de la Sierra, Cádiz province, Spain (© SEN LI/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
