@@ -1,3 +1,11 @@
+## 2025-05-17 威尼斯式的“甜蜜生活”
+
+威尼斯潟湖中的三角洲, 意大利 (© Dimitri Weber/Amazing Aerial Agency)
+
+![](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-05-16 守护濒危生命的一天
 
 大绿金刚鹦鹉, 墨西哥 (© Ondrej Prosicky/Shutterstock)
@@ -237,12 +245,4 @@ Rhyolite附近山谷中的驴子，内华达州，美国 (© Moelyn Photos/Getty
 ![](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-03-26 水面下的生命
-
-水晶河的海牛，佛罗里达州，美国 (© Stephen Frink/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
