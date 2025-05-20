@@ -1,3 +1,11 @@
+## 2025-05-21 茶歇时光
+
+杨家塘村茶园，松阳县，中国 (© feng xu/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-05-20 小翅膀，大作用
 
 薰衣草上的蜜蜂 (© Anthony Brown/Alamy Stock Photo)
@@ -237,12 +245,4 @@ Rhyolite附近山谷中的驴子，内华达州，美国 (© Moelyn Photos/Getty
 ![](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-03-30 尽享美景
-
-悉尼港鸟瞰图，新南威尔士州，澳大利亚 (© jamenpercy/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
