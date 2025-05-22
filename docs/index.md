@@ -1,3 +1,11 @@
+## 2025-05-23 为龟喝彩！
+
+停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔 (© Westend61/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-05-22 猴面包树大道
 
 日落时分的猴面包树，猴面包树大道，马达加斯加 (© Framalicious/Shutterstock)
@@ -237,12 +245,4 @@ Rhyolite附近山谷中的驴子，内华达州，美国 (© Moelyn Photos/Getty
 ![](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-04-01 蹦跳迎接国家青蛙月
-
-树蛙, 哥斯达黎加 (© Ondrej Prosicky/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
