@@ -1,3 +1,11 @@
+## 2025-06-06 诺曼底登陆日的转折点
+
+诺曼底的阿罗芒什莱班 , 法国 (© Horia Merla/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-06-05 隐藏的美景
 
 福玛萨瀑布，迪亚曼蒂纳，巴西 (© Pulsar Images/Alamy)
@@ -237,12 +245,4 @@ Rhyolite附近山谷中的驴子，内华达州，美国 (© Moelyn Photos/Getty
 ![](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-05-06 不一般的沙漠之旅
-
-一架超轻型飞机飞越纳米比亚沙漠 (© Burt Johnson/Alamy Stock Photo)
-
-![](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
