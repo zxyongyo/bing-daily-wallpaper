@@ -1,3 +1,11 @@
+## 2025-06-21 此花端合在瑶池
+
+雾中莲花，中国佛山 (© huoguangliang/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-06-20 寻找斑点
 
 一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚 (© Alberto Cassani/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-05-21 茶歇时光
-
-杨家塘村茶园，松阳县，中国 (© feng xu/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
