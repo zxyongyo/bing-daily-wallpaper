@@ -1,3 +1,11 @@
+## 2025-06-22 一路丛林
+
+亚马逊雨林，厄瓜多尔 (© Mark Fox/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-06-21 此花端合在瑶池
 
 雾中莲花，中国佛山 (© huoguangliang/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-05-22 猴面包树大道
-
-日落时分的猴面包树，猴面包树大道，马达加斯加 (© Framalicious/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
