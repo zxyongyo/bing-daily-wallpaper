@@ -1,3 +1,11 @@
+## 2025-07-05 优雅而低调的巨人
+
+Cize-Bolozon viaduct crossing the Ain gorge, France (© Leonid Andronov/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-07-04 水、空气、岩石
 
 奥罗塞，撒丁岛，意大利 (© EyeEm Mobile GmbH/Getty Images)
@@ -237,12 +245,4 @@ Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL
 ![](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-06-04 卡拉卢纳海滩, 撒丁岛, 意大利
-
-卡拉卢纳海滩, 撒丁岛, 意大利 (© guenterguni/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
