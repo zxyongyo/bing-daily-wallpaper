@@ -1,3 +1,11 @@
+## 2025-07-14 追逐海浪，掀起潮汐
+
+加利西亚海域游弋的幼年大青鲨，西班牙 (© Damocean/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-07-13 层层叠叠的岩石
 
 卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛 (© Arterra Picture Library/Alamy Stock Photo)
@@ -237,12 +245,4 @@ Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL
 ![](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-06-13 海洋的隐秘心跳
-
-维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙 (© ARoxo/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
