@@ -1,3 +1,11 @@
+## 2025-09-04 力量的角逐
+
+灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国 (© Cavan Images/Adobe Stock)
+
+![](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-09-03 享受宁静
 
 边界水域独木舟区荒野区, 明尼苏达州, 美国 (© s.tomas/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-08-04 这是谁的家？
-
-巢中的乌林鸮, 芬兰 (© imageBROKER.com/Alamy Stock Photo)
-
-![](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
