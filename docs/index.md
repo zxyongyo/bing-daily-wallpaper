@@ -1,3 +1,11 @@
+## 2025-09-11 准备仰望天空吧！
+
+蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙 (© Daniel Viñé Garcia/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-09-10 阳光明媚，赶紧打草
 
 干草捆，北约克郡，英格兰 (© Nick Brundle Photography/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-08-11 来自山巅的明信片
-
-圣玛格达莱娜, 多洛米蒂山, 意大利 (© Sakrapee Nopparat/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
