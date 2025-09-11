@@ -1,3 +1,11 @@
+## 2025-09-12 野性畅游，自在徜徉
+
+红海中的飞旋海豚群, 阿拉姆港, 埃及 (© Franco Banfi/Nature Picture Library)
+
+![](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-09-11 准备仰望天空吧！
 
 蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙 (© Daniel Viñé Garcia/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-08-12 野性、智慧与奇迹
-
-非洲象群, 安博塞利国家公园, 肯尼亚 (© Chase Dekker/Minden Pictures)
-
-![](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
