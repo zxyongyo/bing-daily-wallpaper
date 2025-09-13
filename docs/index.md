@@ -1,3 +1,11 @@
+## 2025-09-14 苔藓与薄雾
+
+奥林匹克国家公园的瀑布, 华盛顿, 美国 (© Chris Moore/TANDEM Stills + Motion)
+
+![](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-09-13 崎岖而狂野
 
 烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-08-14 从山顶俯瞰
-
-皮兹奈尔山缆车站, 格劳宾登州, 瑞士 (© Roberto Moiola/Alamy)
-
-![](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
