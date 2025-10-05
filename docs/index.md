@@ -1,3 +1,11 @@
+## 2025-10-06 千里共婵娟
+
+安顺桥中秋灯展，成都，中国 (© Philippe LEJEANVRE/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-10-05 庆祝智慧！
 
 中欧森林里的鬼鸮 (© Ondrej Prosicky/Alamy)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-09-05 完美的夜晚
-
-太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国 (© EXTREME-PHOTOGRAPHER/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
