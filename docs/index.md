@@ -1,3 +1,11 @@
+## 2025-10-10 思绪之礁
+
+莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济 (© David Wall/SuperStock)
+
+![](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-10-09 宇宙在绽放
 
 ‌詹姆斯·韦伯太空望远镜观测的创生之柱 (© NASA)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-09-09 她一根一根地准备着
-
-一只雌性欧亚红松鼠正在搬运苔藓，瑞士 (© Jean-Luc and Francoise Ziegler/Minden Pictures)
-
-![](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
