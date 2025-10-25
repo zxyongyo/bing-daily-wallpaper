@@ -1,3 +1,11 @@
+## 2025-10-26 南瓜日，今日登场！
+
+北卡罗来纳州的南瓜农场, 美国 (© Matthew H Irvin/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-10-25 芬兰的活泥炭地
 
 马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰 (© romikatarina/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-09-25 忠勇的雕刻石
-
-奇陶尔加尔堡, 拉贾斯坦邦, 印度 (© chetansoni/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
