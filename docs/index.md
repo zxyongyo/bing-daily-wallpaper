@@ -1,3 +1,11 @@
+## 2025-11-02 竹林吐纳清气，枫叶绚烂如火
+
+岚山缤纷的枫叶与竹林, 京都, 日本 (© DoctorEgg/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-11-01 古老血脉的兽群
 
 野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国 (© Cheryl Ramalho/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-10-02 法定自然区
-
-蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国 (© DanitaDelimont.com/AWL Images/SuperStock)
-
-![](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
