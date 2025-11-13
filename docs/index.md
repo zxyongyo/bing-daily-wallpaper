@@ -1,3 +1,11 @@
+## 2025-11-14 快节奏时代，别忘了慢下来
+
+海牛妈妈和幼崽，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-11-13 星光下的颤动之树
 
 夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚 (© Wim van den Heever/naturepl.com)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-10-14 蓝与白的梦境
-
-伊亚镇，圣托里尼岛，希腊 (© f9photos/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
