@@ -1,3 +1,11 @@
+## 2025-11-23 大自然的秘密代码
+
+马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-11-22 守护江河的佛像
 
 乐山大佛, 四川, 中国 (© www.anotherdayattheoffice.org/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-10-22 刻在石头上
-
-贝洛格拉齐克石林，保加利亚 (© EvaL Miko/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
