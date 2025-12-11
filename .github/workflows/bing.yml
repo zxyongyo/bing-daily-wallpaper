@@ -9,7 +9,7 @@ jobs:
   play:
     runs-on: ubuntu-latest
     steps:
-      - uses: actions/checkout@v2
+      - uses: actions/checkout@v6
       - uses: actions/setup-node@v4
         with:
           node-version: 16
@@ -20,16 +20,22 @@ jobs:
           yarn
           yarn build
 
+      - name: Check changes
+        id: change-changes
+        run: echo "::set-output name=status::$((git status --porcelain | grep -q .) && echo changed || echo clean)"
+
       - name: Commit files 🐱‍🏍
+        if: ${{ steps.change-changes.outputs.status == 'changed' }}
         run: | # @see https://github.com/ad-m/github-push-action/issues/52
           git config --local --unset-all "http.https://github.com/.extraheader"
-          git config --local user.email "1203123788@qq.com"
-          git config --local user.name "zxyong"
+          git config user.name github-actions
+          git config user.email github-actions@github.com
           git pull
           git add .
           git commit -m "update wallpaper"
 
       - name: Push changes 🚀
+        if: ${{ steps.change-changes.outputs.status == 'changed' }}
         uses: ad-m/github-push-action@master
         with:
           github_token: ${{ secrets.ACCESS_TOKEN }}
