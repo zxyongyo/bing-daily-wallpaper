@@ -1,3 +1,11 @@
+## 2025-12-12 点亮节日的红色植物
+
+有斑点的一品红 (© DigiPub/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-12-11 天地相接之处
 
 从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔 (© shoults/Alamy)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-11-10 草原之下的生命
-
-土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国 (© Greg Vaughn/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
