@@ -1,3 +1,11 @@
+## 2025-12-24 流动的传统
+
+巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国 (© mauritius images GmbH/Alamy)
+
+![](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-12-23 当节日的魔法踩着蹄声而来
 
 冬雪中的驯鹿，拉普兰德，芬兰 (© Roberto Moiola/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-11-23 大自然的秘密代码
-
-马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
