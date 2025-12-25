@@ -1,3 +1,11 @@
+## 2025-12-26 打破盒子的传统
+
+索尔兹伯里大教堂，威尔特郡，英格兰 (© Julian Elliott Photography/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-12-25 微缩世界，无尽奇想
 
 海德堡圣诞市场上的雪球，德国 (© George Pachantouris/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-11-25 爱情、幸运与硬币
-
-罗马的特雷维喷泉, 意大利 (© Nico De Pasquale Photography/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
