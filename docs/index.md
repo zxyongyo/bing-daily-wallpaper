@@ -1,3 +1,11 @@
+## 2025-12-31 柏林，新年之桥
+
+除夕夜，奥伯鲍姆桥，柏林，德国 (© spreephoto.de/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2025-12-30 新太阳的诞生
 
 晨光透过结霜的树木洒下，瑞典 (© Schon/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-11-30 一路闪耀
-
-莱比锡圣诞集市, 德国 (© Krzysztof Baranowski/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
