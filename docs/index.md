@@ -1,3 +1,11 @@
+## 2026-01-16 眼神对上了
+
+埃托沙国家公园的豹子，纳米比亚 (© Norbert Achtelik/Cavan Images)
+
+![](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-01-15 小村庄，大视野
 
 雷讷渔村, 挪威 (© Roberto Moiola/Cavan Images/SuperStock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2025-12-16 小帽子，大能量
-
-圣诞市场上的手工小矮人 (© Veronika Seppanen/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
