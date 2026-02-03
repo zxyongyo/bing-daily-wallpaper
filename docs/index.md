@@ -1,3 +1,11 @@
+## 2026-02-03 太浩湖视觉盛宴
+
+翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国 (© Bill Stevenson/Cavan Images)
+
+![](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-02-02 影子的承诺
 
 阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利 (© Raimund Linke/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-01-03 传奇故事前的篇章
-
-劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士 (© pongnathee kluaythong/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
