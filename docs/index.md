@@ -1,3 +1,11 @@
+## 2026-02-13 为拉近距离而建
+
+连接老挝和泰国的第三座泰老友谊大桥 (© chaiyut samsuk/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-02-12 聚焦进化
 
 蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔 (© Karine Aigner/TANDEM Stills + Motion)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-01-13 苹果韵，旧时光
-
-克卢伊德谷, 威尔士 (© Valerie Blencowe/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
