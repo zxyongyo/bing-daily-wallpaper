@@ -1,3 +1,11 @@
+## 2026-02-16 祝除夕团圆，新年顺遂！
+
+庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-02-15 浪涛下的歌谣
 
 蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国 (© Kiliii Fish/Cavan Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-01-16 眼神对上了
-
-埃托沙国家公园的豹子，纳米比亚 (© Norbert Achtelik/Cavan Images)
-
-![](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
