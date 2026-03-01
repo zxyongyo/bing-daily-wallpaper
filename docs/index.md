@@ -1,3 +1,11 @@
+## 2026-03-02 漂浮的传承
+
+苏梅岛的港口和长尾船, 泰国 (© Foto2rich/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-03-01 每一步，都是传承
 
 伊维萨岛, 巴利阿里群岛, 西班牙 (© tokar/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-01-30 海潮退却之处
-
-马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰 (© Baxter Bradford/robertharding/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
