@@ -1,3 +1,11 @@
+## 2026-03-06 混凝土中铸造的波浪
+
+波浪住宅楼, 瓦埃勒, 丹麦 (© Frank Bach/Alamy)
+
+![](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-03-05 古老岩石，现代灯光
 
 格雷梅的傍晚, 卡帕多西亚, 土耳其 (© ONNAJA/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-02-03 太浩湖视觉盛宴
-
-翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国 (© Bill Stevenson/Cavan Images)
-
-![](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
