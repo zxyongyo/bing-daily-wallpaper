@@ -1,3 +1,11 @@
+## 2026-03-22 当水划出界线
+
+坦噶尼喀湖，非洲 (© BEST-BACKGROUNDS/NASA/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-03-21 根系自由生长的地方
 
 莱泰亚森林，多瑙河三角洲，罗马尼亚 (© Wild Wonders of Europe/Widstrand/Nature Picture Library)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-02-19 大地凝视着我们
-
-乌塔克莱夫海滩的“龙之眼”岩层，挪威 (© reisegraf/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
