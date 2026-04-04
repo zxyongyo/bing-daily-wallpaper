@@ -1,3 +1,11 @@
+## 2026-04-05 静静绽放的变化
+
+春天的雪钟花 (© klagyivik/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-04-04 求偶展示场的故事
 
 求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚 (© Sven Zacek/Nature Picture Library)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-03-05 古老岩石，现代灯光
-
-格雷梅的傍晚, 卡帕多西亚, 土耳其 (© ONNAJA/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
