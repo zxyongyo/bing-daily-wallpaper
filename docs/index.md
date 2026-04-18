@@ -1,3 +1,11 @@
+## 2026-04-19 潮汐留下的印记
+
+镜面海滩，塞古罗港，巴伊亚州，巴西 (© Marcelo Nacinovic/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-04-18 未完成巨像的静默
 
 摩艾石像采石场，拉诺拉拉库，复活节岛，智利 (© Gavin Hellier/Alamy)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-03-19 激发你的好奇心
-
-澳洲针鼹，阿德莱德山，澳大利亚 (© Etienne Littlefair/naturepl.com)
-
-![](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
