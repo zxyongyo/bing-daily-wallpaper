@@ -1,3 +1,11 @@
+## 2026-05-08 不仅仅是一声咿呀学语
+
+撒丁岛母驴和幼崽, 法国 (© Klein & Hubert/Nature Picture Library)
+
+![](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-05-07 广袤铺展的沙漠
 
 科法国家野生动物保护区，亚利桑那州，美国 (© Denis Tangney Jr/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-04-07 一根树枝，一点工程
-
-河狸，德国 (© Andyworks/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
