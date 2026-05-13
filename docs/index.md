@@ -1,3 +1,11 @@
+## 2026-05-14 一场穿越时空的旅程
+
+中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利 (© bluejayphoto/Getty Images Plus)
+
+![](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-05-13 银河系，摇滚吧！
 
 拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国 (© Tim Fitzharris/Minden Pictures)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-04-13 当灯光熄灭之后
-
-安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国 (© Kevin Key/Slworking)/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
