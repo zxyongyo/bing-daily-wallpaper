@@ -1,3 +1,11 @@
+## 2026-05-16 跌到谷底？这里可不是。
+
+史密斯岩州立公园, 俄勒冈州, 美国 (© Alex Ratson/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-05-15 鲸鱼，你会救我吗？
 
 一群抹香鲸, 印度洋 (© Tony Wu/Nature Picture Library)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-04-15 走进这幅鲜活的画布
-
-光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国 (© Patrick Aventurier/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
