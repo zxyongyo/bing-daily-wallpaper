@@ -1,3 +1,11 @@
+## 2026-05-19 马略卡岛的边缘
+
+福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙 (© Allard Schager/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-05-18 大厅里的希望
 
 伦敦自然历史博物馆, 英格兰 (© Colm Keating/Tandem Stills + Motion)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-04-18 未完成巨像的静默
-
-摩艾石像采石场，拉诺拉拉库，复活节岛，智利 (© Gavin Hellier/Alamy)
-
-![](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
