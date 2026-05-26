@@ -1,3 +1,11 @@
+## 2026-05-27 它们“獭”独一无二
+
+海獭，霍默卡奇马克湾，阿拉斯加州，美国 (© roclwyr/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-05-26 羽扇豆书写的季节
 
 盛开的羽扇豆，北加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-04-26 繁花盛放
-
-粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国 (© Mimi Ditchie Photography/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
