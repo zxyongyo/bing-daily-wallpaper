@@ -1,3 +1,11 @@
+## 2026-06-02 穿行于蓝色之间
+
+穿越西台吉乃尔湖的公路，青海省，中国 (© Kaicheng Xu/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-06-01 历史的况味
 
 巴勒莫暮色下的天际线，西西里岛，意大利 (© Sean Pavone/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-05-02 贾斯珀的自然魅力
-
-阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大 (© Don White/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
