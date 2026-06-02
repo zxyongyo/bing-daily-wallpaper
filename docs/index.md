@@ -1,3 +1,11 @@
+## 2026-06-03 路之所止，行之所启
+
+骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙 (© Artur Debat/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-06-02 穿行于蓝色之间
 
 穿越西台吉乃尔湖的公路，青海省，中国 (© Kaicheng Xu/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-05-03 萨瓦纳的晚霞
-
-萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚 (© Klein & Hubert/Nature Picture Library)
-
-![](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
