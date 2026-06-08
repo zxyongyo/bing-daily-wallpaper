@@ -1,3 +1,11 @@
+## 2026-06-09 品尝日落
+
+韦尔纳扎, 五渔村, 利古里亚, 意大利 (© Kelly Cheng/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-06-08 随波逐流
 
 在海洋中游动的狮鬃水母 (© Alexander Semenov Images/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-05-09 克尔卡的造物主
-
-克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚 (© Amazing Aerial Agency/Adobe Stock)
-
-![](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
