@@ -1,3 +1,11 @@
+## 2026-06-16 蔚蓝海礁的守护者
+
+七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛 (© Alex Mustard/Nature Picture Library)
+
+![](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-06-15 岁月雕琢，风景始成
 
 大烟山国家公园，田纳西州，美国 (© Mint Images/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-05-16 跌到谷底？这里可不是。
-
-史密斯岩州立公园, 俄勒冈州, 美国 (© Alex Ratson/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
