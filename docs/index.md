@@ -1,3 +1,11 @@
+## 2026-06-30 阴影被拉得修长之处
+
+马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚 (© danm/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-06-29 生于烈火，拥于碧水
 
 波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚 (© Frederick Millett/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-05-30 读懂黑白之间
-
-平原斑马幼崽，埃托沙国家公园，纳米比亚 (© Sharon Heald/Nature Picture Library)
-
-![](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
