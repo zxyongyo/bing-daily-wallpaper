@@ -1,3 +1,11 @@
+## 2026-07-08 远古火山的回响
+
+阿蒂特兰湖的日出，危地马拉 (© shayes17/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN3840221893_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=2160&rs=1&c=4)
+
 ## 2026-07-07 林冠华彩
 
 板嘴山巨嘴鸟与兰花，厄瓜多尔 (© Murray Cooper/Minden Pictures)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-06-07 最后一堵墙矗立着
-
-邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰 (© Krzysztof Rogalski/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
