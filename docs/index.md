@@ -1,3 +1,11 @@
+## 2026-07-16 滨水变色龙
+
+海军码头，芝加哥，伊利诺伊州，美国 (© Christopher.F Photography/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-07-15 攀登后的奖励
 
 玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国 (© Steve Dunleavy/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-06-15 岁月雕琢，风景始成
-
-大烟山国家公园，田纳西州，美国 (© Mint Images/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
