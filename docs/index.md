@@ -1,3 +1,11 @@
+## 2026-07-21 拱影寻踪
+
+圣卡塔琳娜拱门，安提瓜，危地马拉 (© Filippo Maria Bianchi/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-07-20 月瞰寰宇
 
 月球与地球由阿耳忒弥斯2号机组人员拍摄 (© NASA)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-06-20 海洋中冰封的大教堂
-
-漂浮在南极半岛西部海域的拱形冰山, 南大洋 (© Steven Kazlowski/Nature Picture Library)
-
-![](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
