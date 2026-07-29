@@ -1,3 +1,11 @@
+## 2026-07-30 旷野无声，活态传承之境
+
+在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国 (© Westend61/Adobe Stock)
+
+![](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-07-29 虎啸归来，锐爪重临
 
 孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度 (© Archna Singh/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-06-29 生于烈火，拥于碧水
-
-波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚 (© Frederick Millett/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
