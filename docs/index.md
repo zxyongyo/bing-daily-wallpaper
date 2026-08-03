@@ -1,3 +1,11 @@
+## 2026-08-04 呼呼，太棒了！
+
+佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国 (© mlorenzphotography/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-08-03 色彩鲜艳的船只，历久弥新的传统
 
 马尔萨什洛克港口五彩斑斓的渔船，马耳他 (© Klubovy/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-07-04 此行，不虚绕道
-
-凯泽斯堡，阿尔萨斯，法国 (© Federica Gentile/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
