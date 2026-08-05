@@ -1,3 +1,11 @@
+## 2026-08-06 生死渡口，勇者的史诗
+
+马赛马拉迁徙的角马群横渡马拉河, 肯尼亚 (© Manoj Shah/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-08-05 秘境之门，匠心传世
 
 非斯皇宫装饰华丽的大门，摩洛哥 (© cgst26/Shutterstock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-07-06 百代镌刻之城
-
-锡拉库萨的日落，西西里岛，意大利 (© Balate Dorin/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
