@@ -1,3 +1,11 @@
+## 2026-08-10 两片沙漠交汇之地
+
+约书亚树国家公园，加利福尼亚州，美国 (© JJ Landscapes/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-08-09 身份认同的建筑表达
 
 让-马里·吉巴乌文化中心，新喀里多尼亚 (© Fabien Astre/Alamy)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-07-10 陆地与海洋的鸟瞰图
-
-陆地与海洋的鸟瞰图，维多利亚州，澳大利亚 (© Nearmap/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
