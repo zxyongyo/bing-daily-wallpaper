@@ -1,3 +1,11 @@
+## 2026-08-26 流光溢彩的天空
+
+基尔丘山上空的极光，冰岛 (© Cavan Images/Alamy)
+
+![](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-08-25 守护美国瑰宝
 
 红木国家与州立公园的日出，加利福尼亚州，美国 (© HadelProductions/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-07-26 海陆际会，生机肇始
-
-红树上的日出在小猪群岛，洪都拉斯 (© Mac Stone/Tandem Stills + Motion)
-
-![](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
