@@ -1,3 +1,11 @@
+## 2026-08-31 图案艺术的典范
+
+雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦 (© Piero M. Bianchi/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-08-30 名为鲨鱼的巨型鱼类
 
 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚 (© Pete Oxford/Nature Picture Library)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-07-31 穿越时光的足迹
-
-鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国 (© Eifel Kreutz/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
