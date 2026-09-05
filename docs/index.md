@@ -1,3 +1,11 @@
+## 2026-09-06 倒影满湖的水库
+
+菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚 (© tracielouise/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-09-05 小小鸟儿，巨大影响
 
 龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加 (© Paul Hobson/Nature Picture Library)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-08-06 生死渡口，勇者的史诗
-
-马赛马拉迁徙的角马群横渡马拉河, 肯尼亚 (© Manoj Shah/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
