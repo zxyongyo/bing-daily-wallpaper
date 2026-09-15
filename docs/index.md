@@ -1,3 +1,11 @@
+## 2026-09-16 北极的新晋探索者
+
+斯瓦尔巴群岛玩耍的北极熊幼崽，挪威 (© Danny Green/Nature Picture Library)
+
+![](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-09-15 最炫者生存
 
 红绿金刚鹦鹉 (© markes51/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-08-16 天鹅开启传奇之处
-
-戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰 (© Maria Janus/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
