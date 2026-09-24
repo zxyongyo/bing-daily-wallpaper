@@ -1,3 +1,11 @@
+## 2026-09-25 当月亮也来赴会
+
+庆祝中秋节的中国灯笼 (© LeeYiuTung/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-09-24 火山灰与浪花相遇
 
 黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙 (© Westend61/Adobe Stock)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-08-25 守护美国瑰宝
-
-红木国家与州立公园的日出，加利福尼亚州，美国 (© HadelProductions/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
