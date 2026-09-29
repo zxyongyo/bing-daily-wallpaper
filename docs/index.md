@@ -1,3 +1,11 @@
+## 2026-09-29 冰川孕育之河
+
+卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国 (© jared lloyd/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-09-28 可览美景的历史胜地
 
 斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度 (© R.M. Nunes/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-08-29 读懂浪涛之间的讯息
-
-冲浪者航拍图，圣卡塔琳娜州，巴西 (© Wonderful Nature/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
