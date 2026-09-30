@@ -1,3 +1,11 @@
+## 2026-09-30 一张令人过目难忘的脸
+
+雄性文须雀，诺福克郡，英格兰 (© Andrew Sproule/Shutterstock)
+
+![](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-09-29 冰川孕育之河
 
 卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国 (© jared lloyd/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-08-30 名为鲨鱼的巨型鱼类
-
-鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚 (© Pete Oxford/Nature Picture Library)
-
-![](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
