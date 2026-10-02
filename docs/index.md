@@ -1,3 +1,11 @@
+## 2026-10-02 一条值得保护的河流
+
+查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国 (© mtilghma/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-10-01 在花岗岩中读懂时间
 
 奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国 (© Robb Hirsch/Tandem Stills + Motion)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-09-01 脚下的世界
-
-马鬃小皮伞，白俄罗斯 (© Máté/Nature Picture Library)
-
-![](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
