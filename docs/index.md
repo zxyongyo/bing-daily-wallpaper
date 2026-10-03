@@ -1,3 +1,11 @@
+## 2026-10-03 捕捉、进食、重复
+
+美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊 (© Danny Green/Nature Picture Library)
+
+![](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-10-02 一条值得保护的河流
 
 查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国 (© mtilghma/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-09-02 海岸边的缤纷色彩
-
-传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰 (© stevendocwra/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
