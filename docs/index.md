@@ -1,3 +1,11 @@
+## 2026-10-09 科西嘉岛的岩石前哨
+
+桑吉奈尔群岛景观，摄自科西嘉岛，法国 (© Francesco Riccardo Iacomino/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-10-08 现在你“海”能看见我……
 
 印度洋马约特岛，一只呈防御姿态的章鱼 (© Gabriel Barathieu/Minden Pictures)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-09-08 金色田野
-
-东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰 (© Guy Edwardes/Minden Pictures)
-
-![](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
