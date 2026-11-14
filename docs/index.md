@@ -1,3 +1,11 @@
+## 2026-11-14 唯有向上发展
+
+中国香港维多利亚港 (© Juan Romero/Cavan Images)
+
+![](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-11-13 冰下秘境
 
 亚伯拉罕湖，艾伯塔省，加拿大 (© Guang Cao/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-10-14 穿越时间的螺旋
-
-侏罗纪时期的菊石化石 (© J Nemchinova/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
