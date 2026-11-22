@@ -1,3 +1,11 @@
+## 2026-11-22 海浪间的庇护所
+
+西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂 (© Tramont_ana/Getty Images)
+
+![](https://cn.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-11-21 陶瓦屋顶下的梦
 
 法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯 (© Siripong Kaewla-iad/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-10-22 静水映斑斓
-
-内藏山国立公园的秋景，韩国 (© Twenty47studio/Getty Images)
-
-![](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
