@@ -1,3 +1,11 @@
+## 2026-11-24 秋日的保护色
+
+红松鼠，凯恩戈姆斯国家公园，苏格兰高地 (© Scotland: The Big Picture/Minden Pictures)
+
+![](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
+
+[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
 ## 2026-11-23 自然中的几何之美
 
 蕨类植物的卷曲嫩叶 (© Reza Saputra/Getty Images)
@@ -237,12 +245,4 @@
 ![](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
 
 [Download 1920 * 1080](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-## 2026-10-24 书香里的极致华美
-
-皇家葡萄牙语阅览室，里约热内卢，巴西 (© Antonio Salaverry/Shutterstock)
-
-![](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4)
-
-[Download 1920 * 1080](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=1920&h=1080&rs=1&c=4) | [Download 3840 * 2160](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
